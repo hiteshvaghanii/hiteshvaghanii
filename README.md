@@ -118,7 +118,7 @@ Translate: "6.27 Supreme Bliss is the lot of the sage, whose mind attains Peace,
 
 ## Stackoverflow
 
-[<img src="https://stackoverflow.com/users/flair/10273524.png?theme=dark" alt="Hitesh Vaghani's StackOverflow"/>](https://stackoverflow.com/users/18525424/hitesh-vaghani)
+[<img src="https://stackoverflow.com/users/flair/18525424.png?theme=dark" alt="Hitesh Vaghani's StackOverflow"/>](https://stackoverflow.com/users/18525424/hitesh-vaghani)
 
 <br/>
 

@@ -87,8 +87,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"क्लैब्यं मा स्म गमः पार्थ नैतत्त्वय्युपपद्यते | क्षुद्रं हृदयदौर्बल्यं त्यक्त्वोत्तिष्ठ परन्तप ||२-३||" </br>
-Translate: "2.3 O Arjuna! Why give way to unmanliness? O thou who art the terror of thine enemies! Shake off such shameful effeminacy, make ready to act!" </br>
+"बुद्ध्या विशुद्धया युक्तो धृत्यात्मानं नियम्य च | शब्दादीन्विषयांस्त्यक्त्वा रागद्वेषौ व्युदस्य च ||१८-५१||" </br>
+Translate: "18.51 Guided always by pure reason, bravely restraining himself, renouncing the objects of sense and giving up attachment and hatred;" </br>
 
 # Prefs
 
@@ -118,7 +118,7 @@ Translate: "2.3 O Arjuna! Why give way to unmanliness? O thou who art the terror
 
 ## Stackoverflow
 
-[<img src="https://stackoverflow.com/users/flair/18525424.png?theme=dark" alt="Hitesh Vaghani's StackOverflow"/>](https://stackoverflow.com/users/18525424/hitesh-vaghani)
+[<img src="https://stackoverflow.com/users/flair/10273524.png?theme=dark" alt="Hitesh Vaghani's StackOverflow"/>](https://stackoverflow.com/users/18525424/hitesh-vaghani)
 
 <br/>
 

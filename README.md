@@ -87,8 +87,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"बुद्ध्या विशुद्धया युक्तो धृत्यात्मानं नियम्य च | शब्दादीन्विषयांस्त्यक्त्वा रागद्वेषौ व्युदस्य च ||१८-५१||" </br>
-Translate: "18.51 Guided always by pure reason, bravely restraining himself, renouncing the objects of sense and giving up attachment and hatred;" </br>
+"अर्जुन उवाच | प्रकृतिं पुरुषं चैव क्षेत्रं क्षेत्रज्ञमेव च | एतद्वेदितुमिच्छामि ज्ञानं ज्ञेयं च केशव ||१३-१||" </br>
+Translate: "13.1 "Arjuna asked: My Lord! Who is God and what is Nature; what is Matter and what is the Self; what is that they call Wisdom, and what is it that is worth knowing? I wish to have this explained." </br>
 
 # Prefs
 

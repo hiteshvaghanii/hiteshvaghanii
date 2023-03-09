@@ -124,9 +124,16 @@ Translate: "1.26 There Arjuna noticed fathers, grandfathers, uncles, cousins, so
 
 ![Profile Visitors](https://visitor-badge.laobi.icu/badge?page_id=hiteshvaghanii)
 
-<br/><br/>
+<br/>
 
-### Conenct with Me
+### Donate
+If you like this project, please consider donating so we can keep this project running forever!
+
+<a href="https://www.buymeacoffee.com/hiteshvaghani" target="_blank"><img src="https://cdn.buymeacoffee.com/buttons/default-orange.png" alt="Buy Me a Coffee" height="28" width="119"></a>
+<a href="https://liberapay.com/hitesh" target="_blank"><img src="https://img.shields.io/badge/liberapay-donate-yellow.svg?style=for-the-badge" alt="Liberapay"></a>
+
+
+### Connect with Me
 
 <p align="left">
 <a href="https://www.linkedin.com/in/hitesh-vaghani" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="hitesh" height="30" width="40" /></a>

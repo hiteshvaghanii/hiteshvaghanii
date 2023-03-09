@@ -124,7 +124,13 @@ Translate: "{translated}" </br>
 
 ![Profile Visitors](https://visitor-badge.laobi.icu/badge?page_id=hiteshvaghanii)
 
-<br/><br/>
+<br/>
+
+### Donate
+If you like this project, please consider donating so we can keep this project running forever!
+
+<a href="https://www.buymeacoffee.com/hiteshvaghani" target="_blank"><img src="https://cdn.buymeacoffee.com/buttons/default-orange.png" alt="Buy Me a Coffee" height="28" width="119"></a>
+<a href="https://liberapay.com/hitesh" target="_blank"><img src="https://img.shields.io/badge/liberapay-donate-yellow.svg?style=for-the-badge" alt="Liberapay"></a>
 
 ### Conenct with Me
 

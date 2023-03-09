@@ -118,7 +118,7 @@ Translate: "{translated}" </br>
 
 ## Stackoverflow
 
-[<img src="https://stackoverflow.com/users/flair/10273524.png?theme=dark" alt="Hitesh Vaghani's StackOverflow"/>](https://stackoverflow.com/users/18525424/hitesh-vaghani)
+[<img src="https://stackoverflow.com/users/flair/18525424.png?theme=dark" alt="Hitesh Vaghani's StackOverflow"/>](https://stackoverflow.com/users/18525424/hitesh-vaghani)
 
 <br/>
 

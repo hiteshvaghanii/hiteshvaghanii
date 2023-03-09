@@ -87,8 +87,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"तत्रापश्यत्स्थितान्पार्थः पितॄनथ पितामहान् | आचार्यान्मातुलान्भ्रातॄन्पुत्रान्पौत्रान्सखींस्तथा ||१-२६||" </br>
-Translate: "1.26 There Arjuna noticed fathers, grandfathers, uncles, cousins, sons, grandsons, teachers, friends;" </br>
+"शनैः शनैरुपरमेद् बुद्ध्या धृतिगृहीतया | आत्मसंस्थं मनः कृत्वा न किञ्चिदपि चिन्तयेत् ||६-२५||" </br>
+Translate: "6.25 Little by little, by the help of his reason controlled by fortitude, let him attain peace; and, fixing his mind on the Self, let him not think of any other thing." </br>
 
 # Prefs
 
@@ -132,8 +132,7 @@ If you like this project, please consider donating so we can keep this project r
 <a href="https://www.buymeacoffee.com/hiteshvaghani" target="_blank"><img src="https://cdn.buymeacoffee.com/buttons/default-orange.png" alt="Buy Me a Coffee" height="28" width="119"></a>
 <a href="https://liberapay.com/hitesh" target="_blank"><img src="https://img.shields.io/badge/liberapay-donate-yellow.svg?style=for-the-badge" alt="Liberapay"></a>
 
-
-### Connect with Me
+### Conenct with Me
 
 <p align="left">
 <a href="https://www.linkedin.com/in/hitesh-vaghani" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="hitesh" height="30" width="40" /></a>

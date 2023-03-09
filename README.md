@@ -87,8 +87,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"यामिमां पुष्पितां वाचं प्रवदन्त्यविपश्चितः | वेदवादरताः पार्थ नान्यदस्तीति वादिनः ||२-४२||" </br>
-Translate: "2.42 Only the ignorant speak in figurative language. It is they who extol the letter of the scriptures, saying, There is nothing deeper than this.'" </br>
+"श्रीभगवानुवाच | इमं विवस्वते योगं प्रोक्तवानहमव्ययम् | विवस्वान्मनवे प्राह मनुरिक्ष्वाकवेऽब्रवीत् ||४-१||" </br>
+Translate: "4.1 "Lord Shri Krishna said: This imperishable philosophy I taught to Viwaswana, the founder of the Sun dynasty, Viwaswana gave it to Manu the lawgiver, and Manu to King Ikshwaku!" </br>
 
 # Prefs
 
@@ -118,7 +118,7 @@ Translate: "2.42 Only the ignorant speak in figurative language. It is they who 
 
 ## Stackoverflow
 
-[<img src="https://stackoverflow.com/users/flair/18525424.png?theme=dark" alt="Hitesh Vaghani's StackOverflow"/>](https://stackoverflow.com/users/18525424/hitesh-vaghani)
+[<img src="https://stackoverflow.com/users/flair/10273524.png?theme=dark" alt="Hitesh Vaghani's StackOverflow"/>](https://stackoverflow.com/users/18525424/hitesh-vaghani)
 
 <br/>
 

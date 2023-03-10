@@ -87,8 +87,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अहिंसा सत्यमक्रोधस्त्यागः शान्तिरपैशुनम् | दया भूतेष्वलोलुप्त्वं मार्दवं ह्रीरचापलम् ||१६-२||" </br>
-Translate: "16.2 harmlessness, truth, absence of wrath, renunciation, contentment, straightforwardness, compassion towards all, uncovetousness, courtesy, modesty, constancy," </br>
+"नैते सृती पार्थ जानन्योगी मुह्यति कश्चन | तस्मात्सर्वेषु कालेषु योगयुक्तो भवार्जुन ||८-२७||" </br>
+Translate: "8.27 O Arjuna! The saint knowing these paths is not confused. Therefore meditate perpetually." </br>
 
 # Prefs
 

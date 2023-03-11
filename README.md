@@ -87,8 +87,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"मां च योऽव्यभिचारेण भक्तियोगेन सेवते | स गुणान्समतीत्यैतान्ब्रह्मभूयाय कल्पते ||१४-२६||" </br>
-Translate: "14.26 And he who serves Me and only Me, with unfaltering devotion, shall overcome the Qualities, and become One with the Eternal." </br>
+"सर्वयोनिषु कौन्तेय मूर्तयः सम्भवन्ति याः | तासां ब्रह्म महद्योनिरहं बीजप्रदः पिता ||१४-४||" </br>
+Translate: "14.4 O illustrious son of Kunti! Through whatever wombs men are born, it is the Spirit Itself that conceives, and I am their Father." </br>
 
 # Prefs
 

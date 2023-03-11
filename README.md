@@ -87,8 +87,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"सर्वयोनिषु कौन्तेय मूर्तयः सम्भवन्ति याः | तासां ब्रह्म महद्योनिरहं बीजप्रदः पिता ||१४-४||" </br>
-Translate: "14.4 O illustrious son of Kunti! Through whatever wombs men are born, it is the Spirit Itself that conceives, and I am their Father." </br>
+"धूमो रात्रिस्तथा कृष्णः षण्मासा दक्षिणायनम् | तत्र चान्द्रमसं ज्योतिर्योगी प्राप्य निवर्तते ||८-२५||" </br>
+Translate: "8.25 But if he departs in gloom, at night, during the fortnight of the waning moon and in the six months before the Southern solstice, then he reaches but lunar light and he will be born again." </br>
 
 # Prefs
 

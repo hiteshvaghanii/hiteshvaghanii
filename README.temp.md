@@ -12,36 +12,30 @@ You can click the Preview link to take a look at your changes.
 - 👀 I’m looking to collaborate on Social Job Platforms.
 - 📫 Anyone can reach me on hiteshv.career@gmail.com
 
-💠 Are you having a messy code? Let me help you clean it. 💠
+### 💠 Are you having a messy code? Let me help you clean it. 💠
 
-I have more than 5 Year's of excellence in developing great web applications and business websites based on different concepts for clients across the globe. During these years, I have developed various types of projects in different domains like company management, accounting management, campaign management, and multilingual websites, along with application development, CMS, ERP, and CRM.
-
-My main focus is to give clients satisfaction with my work and improve myself with new trending technologies. I am very punctual and believe in long-term relationships.
-
-Also, I have good knowledge of Jira, Woo-Commerce, Web Customization, API integration, Plugins, and Themes. I have worked on customization for my many client's projects. I have a good command of Web Designing and I feel that UX/UI quality is one of the most important things in Web/Mobile apps.
-
-###✔ Expert in Web Development using
------------------------------------------------
+### ✔ Expert in Web Development using
 - NodeJs - ReactJs - VueJs - SlimJs - Laravel - CodeIgniter - WordPress - Shopify
+-----------------------------------------------
 
 ### ✔ Expert in Mobile App Development using
--------------------------------------------------------
 - Flutter - React Native
+--------------------------------------------
 
 ### ✔ Database Skill
-----------------------
 - MongoDB - MySql - Firebase
+--------------------
 
 ### ✔ Hosting Skill
---------------------
 - CPanel - Terminal/Putty/SSH - AWS - DigitalOcean - Heroku
+-------------------
 
 ### ✔ Tools
------------
 - Git - GitLab - BitBucket - VS Code - Docker
+-----------
 
 ### ✔ What you get from me
---------------------------------
+--------------------------
 ⭐ High Quality work
 ⭐ Time Punctuality
 ⭐ Budget-In service
@@ -58,9 +52,9 @@ Thanks & Regards !!! :)  ✨
 ## Activity Graph
 
 <p align="center">
-<a href="https://github.com/hiteshvaghanii/">
- <img src="https://github-readme-activity-graph.cyclic.app/graph?username=hiteshvaghanii&bg_color=0d1117&color=5bcdec&line=5bcdec&point=f97784&area=true&hide_border=true" width="100%">
-</a>
+   <a href="https://github.com/hiteshvaghanii/">
+   <img src="https://github-readme-activity-graph.cyclic.app/graph?username=hiteshvaghanii&bg_color=0d1117&color=5bcdec&line=5bcdec&point=f97784&area=true&hide_border=true" width="100%">
+   </a>
 </p>
 </br>
 
@@ -74,11 +68,11 @@ Translate: "{translated}" </br>
    <tr>
       <th>Technologies</th>
       <td> 
-         <img src="https://img.shields.io/badge/JavaScript-F7DF1E?style=for-the-badge&logo=javascript&logoColor=black">
-         <img src="https://img.shields.io/badge/HTML5-E34F26?style=for-the-badge&logo=html5&logoColor=white"> 
-         <img src="https://img.shields.io/badge/CSS-239120?&style=for-the-badge&logo=css3&logoColor=white"> 
+         <img src="https://img.shields.io/badge/-GraphQL-E10098?style=for-the-badge&logo=graphql&color=white&logoColor=magenta"> 
+         <img src="https://img.shields.io/badge/laravel-%23FF2D20.svg?style=for-the-badge&logo=laravel&color=white"> 
          <img src="https://img.shields.io/badge/React-5ED3F3?style=for-the-badge&logo=react&logoColor=blue"> 
          <img src="https://img.shields.io/badge/Node-DDff32?style=for-the-badge&logo=node&logoColor=white"> 
+         <img src="https://img.shields.io/badge/JavaScript-F7DF1E?style=for-the-badge&logo=javascript&logoColor=black">
          <img src="https://img.shields.io/badge/Flutter-0078D6?style=for-the-badge&logo=flutter">
       </td>
    </tr>
@@ -87,6 +81,7 @@ Translate: "{translated}" </br>
       <td>
         <img src="https://img.shields.io/badge/Android-3DDC84?style=for-the-badge&logo=android&logoColor=white"> 
         <img src="https://img.shields.io/badge/iOS-000000?style=for-the-badge&logo=ios&logoColor=white"> 
+        <img src="https://img.shields.io/badge/Linux-FCC624?style=for-the-badge&logo=linux&logoColor=black"> 
         <img src="https://img.shields.io/badge/Windows-0078D6?style=for-the-badge&logo=windows&logoColor=white">
       </td>
    </tr>
@@ -96,6 +91,7 @@ Translate: "{translated}" </br>
         <img src="https://img.shields.io/badge/AWS-212d3c?style=for-the-badge&logo=Amazon">
          <img src="https://img.shields.io/badge/Heroku-3a41b0?style=for-the-badge&logo=Heroku">
          <img src="https://img.shields.io/badge/Firebase-0393d9?style=for-the-badge&logo=firebase">
+         <img src="https://img.shields.io/badge/azure-%230072C6.svg?style=for-the-badge&logo=microsoftazure&logoColor=white">
       </td>
    </tr>
 </table>
@@ -103,9 +99,8 @@ Translate: "{translated}" </br>
 <h2 align='center'><i>Github Stats & Languages Used</i></h2>
 <p align="center">
   <img src="https://github-readme-stats.vercel.app/api?username=hiteshvaghanii&count_private=true&show_icons=true&theme=vue-dark&hide_border=true" height="205">
+   [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=hiteshvaghanii)](https://github.com/hiteshvaghanii)
 </p>
-
-[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=hiteshvaghanii)](https://github.com/hiteshvaghanii)
 
 ## Stackoverflow
 

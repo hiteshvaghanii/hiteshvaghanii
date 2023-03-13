@@ -6,10 +6,6 @@ You can click the Preview link to take a look at your changes.
 <h2 align='center'> <i>Hello, Folks! 👋 I am glad to see that you've visited my profile</i> </h2> 
 </br>
 
-<img src="https://media.giphy.com/media/p4NLw3I4U0idi/giphy.gif" width="300">
-
-## About Me 🚀
-
 ## Hi, I'm Hitesh Vaghani 👋 🧑 💻 
 - 🖥️ I’m interested in developing weird stuffs.
 - 🌱 I love JS Frameworks.
@@ -24,44 +20,27 @@ My main focus is to give clients satisfaction with my work and improve myself wi
 
 Also, I have good knowledge of Jira, Woo-Commerce, Web Customization, API integration, Plugins, and Themes. I have worked on customization for my many client's projects. I have a good command of Web Designing and I feel that UX/UI quality is one of the most important things in Web/Mobile apps.
 
-✔ Expert in Web Development using
+###✔ Expert in Web Development using
 -----------------------------------------------
-- NodeJs
-- ReactJs
-- VueJs
-- SlimJs
-- Laravel
-- CodeIgniter
-- WordPress
-- Shopify
+- NodeJs - ReactJs - VueJs - SlimJs - Laravel - CodeIgniter - WordPress - Shopify
 
-✔ Expert in Mobile App Development using
+### ✔ Expert in Mobile App Development using
 -------------------------------------------------------
-- Flutter
+- Flutter - React Native
 
-✔ Database Skill
+### ✔ Database Skill
 ----------------------
-- MongoDB
-- MySql
-- Firebase
+- MongoDB - MySql - Firebase
 
-✔ Hosting Skill
+### ✔ Hosting Skill
 --------------------
-- CPanel
-- Terminal/Putty/SSH
-- AWS
-- DigitalOcean
-- Heroku
+- CPanel - Terminal/Putty/SSH - AWS - DigitalOcean - Heroku
 
-✔ Tools
+### ✔ Tools
 -----------
-- Git
-- GitLab
-- BitBucket
-- VS Code
-- Docker
+- Git - GitLab - BitBucket - VS Code - Docker
 
-✔ What you get from me
+### ✔ What you get from me
 --------------------------------
 ⭐ High Quality work
 ⭐ Time Punctuality
@@ -80,7 +59,7 @@ Thanks & Regards !!! :)  ✨
 
 <p align="center">
 <a href="https://github.com/hiteshvaghanii/">
- <img src="https://activity-graph.herokuapp.com/graph?username=hiteshvaghanii&theme=react-dark&area=true&hide_border=true" width="100%">
+ <img src="https://github-readme-activity-graph.cyclic.app/graph?username=hiteshvaghanii&bg_color=0d1117&color=5bcdec&line=5bcdec&point=f97784&area=true&hide_border=true" width="100%">
 </a>
 </p>
 </br>
@@ -90,31 +69,43 @@ Thanks & Regards !!! :)  ✨
 "श्रद्धावाँल्लभते ज्ञानं तत्परः संयतेन्द्रियः | ज्ञानं लब्ध्वा परां शान्तिमचिरेणाधिगच्छति ||४-३९||" </br>
 Translate: "4.39 He who is full of faith attains wisdom, and he too who can control his senses, having attained that wisdom, he shall ere long attain Supreme Peace." </br>
 
-# Prefs
-
+## Preferences
 <table>
-  <tr>
-    <th>Technology</th>
-    <td> 
-    <img src="https://img.shields.io/badge/JavaScript-F7DF1E?style=for-the-badge&logo=javascript&logoColor=black"> <img src="https://img.shields.io/badge/HTML5-E34F26?style=for-the-badge&logo=html5&logoColor=white"> <img src="https://img.shields.io/badge/CSS-239120?&style=for-the-badge&logo=css3&logoColor=white"> <img src="https://img.shields.io/badge/React-5ED3F3?style=for-the-badge&logo=react&logoColor=white"> <img src="https://img.shields.io/badge/Node-DDff32?style=for-the-badge&logo=node&logoColor=white"> <img src="https://img.shields.io/badge/Flutter-0078D6?style=for-the-badge&logo=flutter">
-    </td>
-    </tr>
-  <tr>
-    <th>OS</th>
-    <td><img src="https://img.shields.io/badge/Android-3DDC84?style=for-the-badge&logo=android&logoColor=white"> <img src="https://img.shields.io/badge/iOS-000000?style=for-the-badge&logo=ios&logoColor=white"> <img src="https://img.shields.io/badge/Windows-0078D6?style=for-the-badge&logo=windows&logoColor=white"></td>
-  </tr>
-  <tr>
-    <th>Hosting & DevOps</th>
-    <td><img src="https://img.shields.io/badge/AWS-212d3c?style=for-the-badge&logo=Amazon">
-    <img src="https://img.shields.io/badge/Heroku-3a41b0?style=for-the-badge&logo=Heroku">
-    <img src="https://img.shields.io/badge/Firebase-0393d9?style=for-the-badge&logo=firebase"></td>
-  </tr>
+   <tr>
+      <th>Technologies</th>
+      <td> 
+         <img src="https://img.shields.io/badge/JavaScript-F7DF1E?style=for-the-badge&logo=javascript&logoColor=black">
+         <img src="https://img.shields.io/badge/HTML5-E34F26?style=for-the-badge&logo=html5&logoColor=white"> 
+         <img src="https://img.shields.io/badge/CSS-239120?&style=for-the-badge&logo=css3&logoColor=white"> 
+         <img src="https://img.shields.io/badge/React-5ED3F3?style=for-the-badge&logo=react&logoColor=blue"> 
+         <img src="https://img.shields.io/badge/Node-DDff32?style=for-the-badge&logo=node&logoColor=white"> 
+         <img src="https://img.shields.io/badge/Flutter-0078D6?style=for-the-badge&logo=flutter">
+      </td>
+   </tr>
+   <tr>
+      <th>OS</th>
+      <td>
+        <img src="https://img.shields.io/badge/Android-3DDC84?style=for-the-badge&logo=android&logoColor=white"> 
+        <img src="https://img.shields.io/badge/iOS-000000?style=for-the-badge&logo=ios&logoColor=white"> 
+        <img src="https://img.shields.io/badge/Windows-0078D6?style=for-the-badge&logo=windows&logoColor=white">
+      </td>
+   </tr>
+   <tr>
+      <th>Hosting & DevOps</th>
+      <td>
+        <img src="https://img.shields.io/badge/AWS-212d3c?style=for-the-badge&logo=Amazon">
+         <img src="https://img.shields.io/badge/Heroku-3a41b0?style=for-the-badge&logo=Heroku">
+         <img src="https://img.shields.io/badge/Firebase-0393d9?style=for-the-badge&logo=firebase">
+      </td>
+   </tr>
 </table>
 
 <h2 align='center'><i>Github Stats & Languages Used</i></h2>
 <p align="center">
-<img src="https://github-readme-stats.vercel.app/api?username=hiteshvaghanii&count_private=true&show_icons=true&theme=vue-dark&hide_border=true" height="205">
+  <img src="https://github-readme-stats.vercel.app/api?username=hiteshvaghanii&count_private=true&show_icons=true&theme=vue-dark&hide_border=true" height="205">
 </p>
+
+[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=hiteshvaghanii)](https://github.com/hiteshvaghanii)
 
 ## Stackoverflow
 
@@ -127,12 +118,12 @@ Translate: "4.39 He who is full of faith attains wisdom, and he too who can cont
 <br/>
 
 ### Donate
-If you like this project, please consider donating so we can keep this project running forever!
+If you like this project, please consider donating so we can keep this projects running forever!
 
 <a href="https://www.buymeacoffee.com/hiteshvaghani" target="_blank"><img src="https://cdn.buymeacoffee.com/buttons/default-orange.png" alt="Buy Me a Coffee" height="28" width="119"></a>
 <a href="https://liberapay.com/hitesh" target="_blank"><img src="https://img.shields.io/badge/liberapay-donate-yellow.svg?style=for-the-badge" alt="Liberapay"></a>
 
-### Conenct with Me
+### Connect with Me
 
 <p align="left">
 <a href="https://www.linkedin.com/in/hitesh-vaghani" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="hitesh" height="30" width="40" /></a>

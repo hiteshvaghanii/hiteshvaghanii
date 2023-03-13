@@ -98,18 +98,18 @@ Translate: "4.39 He who is full of faith attains wisdom, and he too who can cont
 
 <h2 align='center'><i>Github Stats & Languages Used</i></h2>
 <p align="center">
-  <img src="https://github-readme-stats.vercel.app/api?username=hiteshvaghanii&count_private=true&show_icons=true&theme=vue-dark&hide_border=true" height="205">
+
+   [![GitHub Stats](https://github-readme-stats.vercel.app/api?username=hiteshvaghanii&count_private=true&show_icons=true&theme=vue-dark&hide_border=true)](https://github.com/hiteshvaghanii)
+   [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=hiteshvaghanii)](https://github.com/hiteshvaghanii)
+
 </p>
 
-[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=hiteshvaghanii)](https://github.com/hiteshvaghanii)
-
 ## Stackoverflow
-
-[<img src="https://stackoverflow.com/users/flair/18525424.png?theme=dark" alt="Hitesh Vaghani's StackOverflow"/>](https://stackoverflow.com/users/18525424/hitesh-vaghani)
+![Hitesh Vaghani's StackOverflow](https://stackoverflow.com/users/flair/18525424.png?theme=dark)(https://stackoverflow.com/users/18525424/hitesh-vaghani)
 
 <br/>
 
-![Profile Visitors](https://visitor-badge.laobi.icu/badge?page_id=hiteshvaghanii)
+![Profile Visitors](https://visitor-badge.laobi.icu/badge?page_id=hiteshvaghanii)(https://github.com/hiteshvaghanii)
 
 <br/>
 

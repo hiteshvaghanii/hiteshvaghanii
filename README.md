@@ -105,11 +105,9 @@ Translate: "4.39 He who is full of faith attains wisdom, and he too who can cont
 </p>
 
 ## Stackoverflow
-![Hitesh Vaghani's StackOverflow](https://stackoverflow.com/users/flair/18525424.png?theme=dark)(https://stackoverflow.com/users/18525424/hitesh-vaghani)
 
-<br/>
-
-![Profile Visitors](https://visitor-badge.laobi.icu/badge?page_id=hiteshvaghanii)(https://github.com/hiteshvaghanii)
+[![Hitesh Vaghani's StackOverflow](https://stackoverflow.com/users/flair/18525424.png?theme=dark)](https://stackoverflow.com/users/18525424/hitesh-vaghani)
+[![Profile Visitors](https://visitor-badge.laobi.icu/badge?page_id=hiteshvaghanii)](https://github.com/hiteshvaghanii)
 
 <br/>
 

@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"स तया श्रद्धया युक्तस्तस्याराधनमीहते | लभते च ततः कामान्मयैव विहितान्हि तान् ||७-२२||" </br>
-Translate: "7.22 If he worships one form alone with real faith, then shall his desires be fulfilled through that only; for thus have I ordained." </br>
+"भोक्तारं यज्ञतपसां सर्वलोकमहेश्वरम् | सुहृदं सर्वभूतानां ज्ञात्वा मां शान्तिमृच्छति ||५-२९||" </br>
+Translate: "5.29 Knowing me as Him who gladly receives all offerings of austerity and sacrifice, as the Might Ruler of all the Worlds and the Friend of all beings, he passes to Eternal Peace."" </br>
 
 ## Preferences
 <table>

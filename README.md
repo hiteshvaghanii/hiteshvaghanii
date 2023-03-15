@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"यया धर्ममधर्मं च कार्यं चाकार्यमेव च | अयथावत्प्रजानाति बुद्धिः सा पार्थ राजसी ||१८-३१||" </br>
-Translate: "18.31 The intellect which does not understand what is right and what is wrong, and what should be done and what not, is under the sway of Passion." </br>
+"परित्राणाय साधूनां विनाशाय च दुष्कृताम् | धर्मसंस्थापनार्थाय सम्भवामि युगे युगे ||४-८||" </br>
+Translate: "4.8 To protect the righteous, to destroy the wicked and to establish the kingdom of God, I am reborn from age to age." </br>
 
 ## Preferences
 <table>

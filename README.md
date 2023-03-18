@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"न कर्मणामनारम्भान्नैष्कर्म्यं पुरुषोऽश्नुते | न च संन्यसनादेव सिद्धिं समधिगच्छति ||३-४||" </br>
-Translate: "3.4 No man can attain freedom from activity by refraining from action; nor can he reach perfection by merely refusing to act." </br>
+"सर्वकर्माण्यपि सदा कुर्वाणो मद्व्यपाश्रयः | मत्प्रसादादवाप्नोति शाश्वतं पदमव्ययम् ||१८-५६||" </br>
+Translate: "18.56 Relying on Me in all his action and doing them for My sake, he attains, by My Grace, Eternal and Unchangeable Life." </br>
 
 ## Preferences
 <table>

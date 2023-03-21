@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"सङ्कल्पप्रभवान्कामांस्त्यक्त्वा सर्वानशेषतः | मनसैवेन्द्रियग्रामं विनियम्य समन्ततः ||६-२४||" </br>
-Translate: "6.24 Renouncing every desire which imagination can conceive, controlling the senses at every point by the power of mind;" </br>
+"कृपया परयाविष्टो विषीदन्निदमब्रवीत् | अर्जुन उवाच | दृष्ट्वेमं स्वजनं कृष्ण युयुत्सुं समुपस्थितम् ||१-२८||" </br>
+Translate: "1.28 And his heart melted with pity and sadly he spoke: O my Lord! When I see all these, my own people, thirsting for battle," </br>
 
 ## Preferences
 <table>

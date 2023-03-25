@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अस्माकं तु विशिष्टा ये तान्निबोध द्विजोत्तम | नायका मम सैन्यस्य संज्ञार्थं तान्ब्रवीमि ते ||१-७||" </br>
-Translate: "1.7 Further, take note of all those captains who have ranged themselves on our side, O best of Spiritual Guides! The leaders of my army. I will name them for you." </br>
+"यत्तु कृत्स्नवदेकस्मिन्कार्ये सक्तमहैतुकम् | अतत्त्वार्थवदल्पं च तत्तामसमुदाहृतम् ||१८-२२||" </br>
+Translate: "18.22 But that which clings blindly to one idea as if it were all, without logic, truth or insight, that has its origin in Darkness." </br>
 
 ## Preferences
 <table>

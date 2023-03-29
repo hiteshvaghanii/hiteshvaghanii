@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"यं यं वापि स्मरन्भावं त्यजत्यन्ते कलेवरम् | तं तमेवैति कौन्तेय सदा तद्भावभावितः ||८-६||" </br>
-Translate: "8.6 On whatever sphere of being the mind of a man may be intent at the time of death, thither he will go." </br>
+"ये हि संस्पर्शजा भोगा दुःखयोनय एव ते | आद्यन्तवन्तः कौन्तेय न तेषु रमते बुधः ||५-२२||" </br>
+Translate: "5.22 The joys that spring from external associations bring pain; they have their beginning and their endings. The wise man does not rejoice in them." </br>
 
 ## Preferences
 <table>

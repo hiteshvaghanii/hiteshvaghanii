@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"सततं कीर्तयन्तो मां यतन्तश्च दृढव्रताः | नमस्यन्तश्च मां भक्त्या नित्ययुक्ता उपासते ||९-१४||" </br>
-Translate: "9.14 Always extolling Me, strenuous, firm in their vows, prostrating themselves before Me, they worship Me continually with concentrated devotion." </br>
+"कामात्मानः स्वर्गपरा जन्मकर्मफलप्रदाम् | क्रियाविशेषबहुलां भोगैश्वर्यगतिं प्रति ||२-४३||" </br>
+Translate: "2.43 Consulting only their own desires, they construct their own heaven, devising arduous and complex rites to secure their own pleasure and their own power; and the only result is rebirth." </br>
 
 ## Preferences
 <table>

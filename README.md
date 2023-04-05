@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"नान्यं गुणेभ्यः कर्तारं यदा द्रष्टानुपश्यति | गुणेभ्यश्च परं वेत्ति मद्भावं सोऽधिगच्छति ||१४-१९||" </br>
-Translate: "14.19 As soon as man understands that it is only the Qualities which act and nothing else, and perceives That which is beyond, he attains My divine nature." </br>
+"सङ्कल्पप्रभवान्कामांस्त्यक्त्वा सर्वानशेषतः | मनसैवेन्द्रियग्रामं विनियम्य समन्ततः ||६-२४||" </br>
+Translate: "6.24 Renouncing every desire which imagination can conceive, controlling the senses at every point by the power of mind;" </br>
 
 ## Preferences
 <table>

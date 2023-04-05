@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"न बुद्धिभेदं जनयेदज्ञानां कर्मसङ्गिनाम् | जोषयेत्सर्वकर्माणि विद्वान्युक्तः समाचरन् ||३-२६||" </br>
-Translate: "3.26 But a wise man should not perturb the minds of the ignorant, who are attached to action; let him perform his own actions in the right spirit, with concentration on Me, thus inspiring all to do the same." </br>
+"नान्यं गुणेभ्यः कर्तारं यदा द्रष्टानुपश्यति | गुणेभ्यश्च परं वेत्ति मद्भावं सोऽधिगच्छति ||१४-१९||" </br>
+Translate: "14.19 As soon as man understands that it is only the Qualities which act and nothing else, and perceives That which is beyond, he attains My divine nature." </br>
 
 ## Preferences
 <table>

@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"प्रकृतेर्गुणसम्मूढाः सज्जन्ते गुणकर्मसु | तानकृत्स्नविदो मन्दान्कृत्स्नविन्न विचालयेत् ||३-२९||" </br>
-Translate: "3.29 Those who do not understand the Qualities are interested in the act. Still, the wise man who knows the truth should not disturb the mind of him who does not." </br>
+"रूपं महत्ते बहुवक्त्रनेत्रं महाबाहो बहुबाहूरुपादम् | बहूदरं बहुदंष्ट्राकरालं दृष्ट्वा लोकाः प्रव्यथितास्तथाहम् ||११-२३||" </br>
+Translate: "11.23 Seeing Thy stupendous Form, O Most Mighty, with its myriad faces, its innumerable eyes and limbs and terrible jaws, I myself and all the worlds are overwhelmed with awe." </br>
 
 ## Preferences
 <table>

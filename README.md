@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"उच्चैःश्रवसमश्वानां विद्धि माममृतोद्भवम् | ऐरावतं गजेन्द्राणां नराणां च नराधिपम् ||१०-२७||" </br>
-Translate: "10.27 Know that among horses I am Pegasus, the heaven-born; among the lordly elephants I am the White one, and I am the Ruler among men." </br>
+"अहमात्मा गुडाकेश सर्वभूताशयस्थितः | अहमादिश्च मध्यं च भूतानामन्त एव च ||१०-२०||" </br>
+Translate: "10.20 O Arjuna! I am the Self, seated in the hearts of all beings; I am the beginning and the life, and I am the end of them all." </br>
 
 ## Preferences
 <table>

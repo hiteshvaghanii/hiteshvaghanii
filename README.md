@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"दिव्यमाल्याम्बरधरं दिव्यगन्धानुलेपनम् | सर्वाश्चर्यमयं देवमनन्तं विश्वतोमुखम् ||११-११||" </br>
-Translate: "11.11 Crowned with heavenly garlands, clothed in shining garments, anointed with divine unctions, He showed Himself as the Resplendent One, Marvellous, Boundless, Omnipresent." </br>
+"विधिहीनमसृष्टान्नं मन्त्रहीनमदक्षिणम् | श्रद्धाविरहितं यज्ञं तामसं परिचक्षते ||१७-१३||" </br>
+Translate: "17.13 Sacrifice that is contrary to scriptural command, that is unaccompanied by prayers or gifts of food or money, and is without faith - that is the product of Ignorance." </br>
 
 ## Preferences
 <table>

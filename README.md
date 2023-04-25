@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"ब्रह्मण्याधाय कर्माणि सङ्गं त्यक्त्वा करोति यः | लिप्यते न स पापेन पद्मपत्रमिवाम्भसा ||५-१०||" </br>
-Translate: "5.10 He who dedicates his actions to the Spirit, without any personal attachment to them, he is no more tainted by sin than the water lily is wetted by water." </br>
+"अथ चेत्त्वमिमं धर्म्यं संग्रामं न करिष्यसि | ततः स्वधर्मं कीर्तिं च हित्वा पापमवाप्स्यसि ||२-३३||" </br>
+Translate: "2.33 Refuse to fight in this righteous cause, and thou wilt be a traitor, lost to fame, incurring only sin." </br>
 
 ## Preferences
 <table>

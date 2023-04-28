@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"यज्ञे तपसि दाने च स्थितिः सदिति चोच्यते | कर्म चैव तदर्थीयं सदित्येवाभिधीयते ||१७-२७||" </br>
-Translate: "17.27 Conviction in sacrifice, in austerity and in giving is also called Sat.' So too an action done only for the Lord's sake." </br>
+"यं लब्ध्वा चापरं लाभं मन्यते नाधिकं ततः | यस्मिन्स्थितो न दुःखेन गुरुणापि विचाल्यते ||६-२२||" </br>
+Translate: "6.22 Finding That, he will realise that there is no possession so precious. And when once established here, no calamity can disturb him." </br>
 
 ## Preferences
 <table>

@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"लोभः प्रवृत्तिरारम्भः कर्मणामशमः स्पृहा | रजस्येतानि जायन्ते विवृद्धे भरतर्षभ ||१४-१२||" </br>
-Translate: "14.12 O best of Indians! Avarice, the impulse to act and the beginning of action itself are all due to the dominance of Passion." </br>
+"नियतं सङ्गरहितमरागद्वेषतः कृतम् | अफलप्रेप्सुना कर्म यत्तत्सात्त्विकमुच्यते ||१८-२३||" </br>
+Translate: "18.23 An obligatory action done by one who is disinterested, who neither likes nor dislikes it, and gives no thought to the consequences that follow, such an action is Pure." </br>
 
 ## Preferences
 <table>

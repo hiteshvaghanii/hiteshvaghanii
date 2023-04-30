@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"श्रुतिविप्रतिपन्ना ते यदा स्थास्यति निश्चला | समाधावचला बुद्धिस्तदा योगमवाप्स्यसि ||२-५३||" </br>
-Translate: "2.53 When the intellect, bewildered by the multiplicity of holy scripts, stands unperturbed in blissful contemplation of the Infinite, then hast thou attained Spirituality." </br>
+"कायेन मनसा बुद्ध्या केवलैरिन्द्रियैरपि | योगिनः कर्म कुर्वन्ति सङ्गं त्यक्त्वात्मशुद्धये ||५-११||" </br>
+Translate: "5.11 The sage performs his action dispassionately, using his body, mind and intellect, and even his senses, always as a means of purification." </br>
 
 ## Preferences
 <table>

@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"प्रवृत्तिं च निवृत्तिं च कार्याकार्ये भयाभये | बन्धं मोक्षं च या वेत्ति बुद्धिः सा पार्थ सात्त्विकी ||१८-३०||" </br>
-Translate: "18.30 That intellect which understands the creation and dissolution of life, what actions should be done and what not, which discriminates between fear and fearlessness, bondage and deliverance, that is Pure." </br>
+"अविनाशि तु तद्विद्धि येन सर्वमिदं ततम् | विनाशमव्ययस्यास्य न कश्चित्कर्तुमर्हति ||२-१७||" </br>
+Translate: "2.17 The Spirit, which pervades all that we see, is imperishable. Nothing can destroy the Spirit." </br>
 
 ## Preferences
 <table>

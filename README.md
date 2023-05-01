@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"तपस्विभ्योऽधिको योगी ज्ञानिभ्योऽपि मतोऽधिकः | कर्मिभ्यश्चाधिको योगी तस्माद्योगी भवार्जुन ||६-४६||" </br>
-Translate: "6.46 The wise man is superior to the ascetic and to the scholar and to the man of action; therefore be thou a wise man, O Arjuna!" </br>
+"दैवमेवापरे यज्ञं योगिनः पर्युपासते | ब्रह्माग्नावपरे यज्ञं यज्ञेनैवोपजुह्वति ||४-२५||" </br>
+Translate: "4.25 Some sages sacrifice to the Powers; others offer themselves on the alter of the Eternal." </br>
 
 ## Preferences
 <table>

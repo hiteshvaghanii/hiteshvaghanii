@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"न हि कश्चित्क्षणमपि जातु तिष्ठत्यकर्मकृत् | कार्यते ह्यवशः कर्म सर्वः प्रकृतिजैर्गुणैः ||३-५||" </br>
-Translate: "3.5 He cannot even for a moment remain really inactive, for the Qualities of Nature will compel him to act whether he will or no." </br>
+"शमो दमस्तपः शौचं क्षान्तिरार्जवमेव च | ज्ञानं विज्ञानमास्तिक्यं ब्रह्मकर्म स्वभावजम् ||१८-४२||" </br>
+Translate: "18.42 Serenity, self-restraint, austerity, purity, forgiveness, as well as uprightness, knowledge, wisdom and faith in God - these constitute the duty of a spiritual Teacher." </br>
 
 ## Preferences
 <table>

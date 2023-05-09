@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"प्रवृत्तिं च निवृत्तिं च जना न विदुरासुराः | न शौचं नापि चाचारो न सत्यं तेषु विद्यते ||१६-७||" </br>
-Translate: "16.7 The godless do not know how to act or how to renounce. They have neither purity nor truth. They do not understand the right principles of conduct." </br>
+"श्रीभगवानुवाच | बहूनि मे व्यतीतानि जन्मानि तव चार्जुन | तान्यहं वेद सर्वाणि न त्वं वेत्थ परन्तप ||४-५||" </br>
+Translate: "4.5 Lord Shri Krishna replied: I have been born again and again, from time to time; thou too,O Arjuna! My births are known to Me, but thou knowest not thine." </br>
 
 ## Preferences
 <table>

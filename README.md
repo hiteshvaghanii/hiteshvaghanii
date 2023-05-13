@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"सर्वकर्माण्यपि सदा कुर्वाणो मद्व्यपाश्रयः | मत्प्रसादादवाप्नोति शाश्वतं पदमव्ययम् ||१८-५६||" </br>
-Translate: "18.56 Relying on Me in all his action and doing them for My sake, he attains, by My Grace, Eternal and Unchangeable Life." </br>
+"महाभूतान्यहंकारो बुद्धिरव्यक्तमेव च | इन्द्रियाणि दशैकं च पञ्च चेन्द्रियगोचराः ||१३-६||" </br>
+Translate: "13.6 The five great fundamentals (earth, fire, air, water and ether), personality, intellect, the mysterious life force, the ten organs of perception and action, the mind and the five domains of sensation;" </br>
 
 ## Preferences
 <table>

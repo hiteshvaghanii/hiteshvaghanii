@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"तद्बुद्धयस्तदात्मानस्तन्निष्ठास्तत्परायणाः | गच्छन्त्यपुनरावृत्तिं ज्ञाननिर्धूतकल्मषाः ||५-१७||" </br>
-Translate: "5.17 Meditating on the Divine, having faith in the Divine, concentrating on the Divine and losing themselves in the Divine, their sins dissolved in wisdom, they go whence there is no return." </br>
+"मन्मना भव मद्भक्तो मद्याजी मां नमस्कुरु | मामेवैष्यसि युक्त्वैवमात्मानं मत्परायणः ||९-३४||" </br>
+Translate: "9.34 Fix thy mind on Me, devote thyself to Me, sacrifice for Me, surrender to Me, make Me the object of thy aspirations, and thou shalt assuredly become one with Me, Who am thine own Self."" </br>
 
 ## Preferences
 <table>

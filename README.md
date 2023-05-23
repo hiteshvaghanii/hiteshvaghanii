@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"न मां दुष्कृतिनो मूढाः प्रपद्यन्ते नराधमाः | माययापहृतज्ञाना आसुरं भावमाश्रिताः ||७-१५||" </br>
-Translate: "7.15 The sinner, the ignorant, the vile, deprived of spiritual perception by the glamour of Illusion, and he who pursues a godless life - none of them shall find Me." </br>
+"अर्जुन उवाच | संन्यासस्य महाबाहो तत्त्वमिच्छामि वेदितुम् | त्यागस्य च हृषीकेश पृथक्केशिनिषूदन ||१८-१||" </br>
+Translate: "18.1 "Arjuna asked: O mighty One! I desire to know how relinquishment is distinguished from renunciation." </br>
 
 ## Preferences
 <table>

@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"सर्वभूतेषु येनैकं भावमव्ययमीक्षते | अविभक्तं विभक्तेषु तज्ज्ञानं विद्धि सात्त्विकम् ||१८-२०||" </br>
-Translate: "18.20 That knowledge which sees the One Indestructible in all beings, the One Indivisible in all separate lives, may be truly called Pure Knowledge." </br>
+"सुखदुःखे समे कृत्वा लाभालाभौ जयाजयौ | ततो युद्धाय युज्यस्व नैवं पापमवाप्स्यसि ||२-३८||" </br>
+Translate: "2.38 Look upon pleasure and pain, victory and defeat, with an equal eye. Make ready for the combat, and thou shalt commit no sin." </br>
 
 ## Preferences
 <table>

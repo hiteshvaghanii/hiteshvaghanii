@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"यत्तु कामेप्सुना कर्म साहंकारेण वा पुनः | क्रियते बहुलायासं तद्राजसमुदाहृतम् ||१८-२४||" </br>
-Translate: "18.24 But even though an action involve the most strenuous endeavour, yet if the doer is seeking to gratify his desires, and is filled with personal vanity, it may be assumed to originate in Passion." </br>
+"अनेकवक्त्रनयनमनेकाद्भुतदर्शनम् | अनेकदिव्याभरणं दिव्यानेकोद्यतायुधम् ||११-१०||" </br>
+Translate: "11.10 There were countless eyes and mouths, and mystic forms innumerable, with shining ornaments and flaming celestial weapons." </br>
 
 ## Preferences
 <table>

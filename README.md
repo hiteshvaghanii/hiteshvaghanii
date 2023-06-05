@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"गाण्डीवं स्रंसते हस्तात्त्वक्चैव परिदह्यते | न च शक्नोम्यवस्थातुं भ्रमतीव च मे मनः ||१-३०||" </br>
-Translate: "1.30 The bow Gandeeva slips from my hand, and my skin burns. I cannot keep quiet, for my mind is in tumult." </br>
+"महर्षीणां भृगुरहं गिरामस्म्येकमक्षरम् | यज्ञानां जपयज्ञोऽस्मि स्थावराणां हिमालयः ||१०-२५||" </br>
+Translate: "10.25 Of the great seers I am Bhrigu, of words I am Om, of offerings I am the silent prayer, among things immovable I am the Himalayas." </br>
 
 ## Preferences
 <table>

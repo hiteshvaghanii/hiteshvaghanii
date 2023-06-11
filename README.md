@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"शुभाशुभफलैरेवं मोक्ष्यसे कर्मबन्धनैः | संन्यासयोगयुक्तात्मा विमुक्तो मामुपैष्यसि ||९-२८||" </br>
-Translate: "9.28 So shall thy action be attended by no result, either good or bad; but through the spirit of renunciation thou shalt come to Me and be free." </br>
+"वीतरागभयक्रोधा मन्मया मामुपाश्रिताः | बहवो ज्ञानतपसा पूता मद्भावमागताः ||४-१०||" </br>
+Translate: "4.10 Many have merged their existences in Mine, being freed from desire, fear and anger, filled always with Me and purified by the illuminating flame of self-abnegation." </br>
 
 ## Preferences
 <table>

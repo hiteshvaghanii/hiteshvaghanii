@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"समं कायशिरोग्रीवं धारयन्नचलं स्थिरः | सम्प्रेक्ष्य नासिकाग्रं स्वं दिशश्चानवलोकयन् ||६-१३||" </br>
-Translate: "6.13 Let him hold body, head and neck erect, motionless and steady; let him look fixedly at the tip of his nose, turning neither to the right nor to the left." </br>
+"अर्जुन उवाच | संन्यासं कर्मणां कृष्ण पुनर्योगं च शंससि | यच्छ्रेय एतयोरेकं तन्मे ब्रूहि सुनिश्चितम् ||५-१||" </br>
+Translate: "5.1 "Arjuna said: My Lord! At one moment Thou praisest renunciation of action; at another, right action. Tell me truly, I pray, which of these is the more conducive to my highest welfare?" </br>
 
 ## Preferences
 <table>

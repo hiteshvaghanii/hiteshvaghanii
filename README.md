@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अव्यक्तोऽक्षर इत्युक्तस्तमाहुः परमां गतिम् | यं प्राप्य न निवर्तन्ते तद्धाम परमं मम ||८-२१||" </br>
-Translate: "8.21 The wise say that the Unmanifest and Indestructible is the highest goal of all; when once That is reached, there is no return. That is My Blessed Home." </br>
+"युक्तः कर्मफलं त्यक्त्वा शान्तिमाप्नोति नैष्ठिकीम् | अयुक्तः कामकारेण फले सक्तो निबध्यते ||५-१२||" </br>
+Translate: "5.12 Having abandoned the fruit of action, he wins eternal peace. Others unacquainted with spirituality, led by desire and clinging to the benefit which they think will follow their actions, become entangled in them." </br>
 
 ## Preferences
 <table>

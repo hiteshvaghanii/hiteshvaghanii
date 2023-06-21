@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अन्ये च बहवः शूरा मदर्थे त्यक्तजीविताः | नानाशस्त्रप्रहरणाः सर्वे युद्धविशारदाः ||१-९||" </br>
-Translate: "1.9 And many others, all ready to die for my sake; all armed, all skilled in war." </br>
+"कर्मणो ह्यपि बोद्धव्यं बोद्धव्यं च विकर्मणः | अकर्मणश्च बोद्धव्यं गहना कर्मणो गतिः ||४-१७||" </br>
+Translate: "4.17 It is necessary to consider what is right action, what is wrong action, and what is inaction, for mysterious is the law of action." </br>
 
 ## Preferences
 <table>

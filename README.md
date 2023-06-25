@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"धृत्या यया धारयते मनःप्राणेन्द्रियक्रियाः | योगेनाव्यभिचारिण्या धृतिः सा पार्थ सात्त्विकी ||१८-३३||" </br>
-Translate: "18.33 The conviction and steady concentration by which the mind, the vitality and the senses are controlled - O Arjuna! They are the product of Purity." </br>
+"मात्रास्पर्शास्तु कौन्तेय शीतोष्णसुखदुःखदाः | आगमापायिनोऽनित्यास्तांस्तितिक्षस्व भारत ||२-१४||" </br>
+Translate: "2.14 Those external relations which bring cold and heat, pain and happiness, they come and go; they are not permanent. Endure them bravely, O Prince!" </br>
 
 ## Preferences
 <table>

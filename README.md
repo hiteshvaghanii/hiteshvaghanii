@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"एतान्यपि तु कर्माणि सङ्गं त्यक्त्वा फलानि च | कर्तव्यानीति मे पार्थ निश्चितं मतमुत्तमम् ||१८-६||" </br>
-Translate: "18.6 But they should be done with detachment and without thought of recompense. This is my final judgment." </br>
+"अशास्त्रविहितं घोरं तप्यन्ते ये तपो जनाः | दम्भाहंकारसंयुक्ताः कामरागबलान्विताः ||१७-५||" </br>
+Translate: "17.5 Those who practise austerities not commanded by scripture, who are slaves to hypocrisy and egotism, who are carried away by the fury of desire and passion," </br>
 
 ## Preferences
 <table>

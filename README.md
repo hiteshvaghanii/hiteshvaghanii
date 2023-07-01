@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अग्निर्जोतिरहः शुक्लः षण्मासा उत्तरायणम् | तत्र प्रयाता गच्छन्ति ब्रह्म ब्रह्मविदो जनाः ||८-२४||" </br>
-Translate: "8.24 If knowing the Supreme Spirit the sage goes forth with fire and light, in the daytime, in the fortnight of the waxing moon and in the six months before the Northern summer solstice, he will attain the Supreme." </br>
+"श्रीभगवानुवाच | अक्षरं ब्रह्म परमं स्वभावोऽध्यात्ममुच्यते | भूतभावोद्भवकरो विसर्गः कर्मसंज्ञितः ||८-३||" </br>
+Translate: "8.3 The Lord Shri Krishna replied: The Supreme Spirit is the Highest Imperishable Self, and Its Nature is spiritual consciousness. The worlds have been created and are supported by an emanation from the Spirit which is called the Law." </br>
 
 ## Preferences
 <table>

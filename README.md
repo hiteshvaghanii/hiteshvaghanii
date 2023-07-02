@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अन्तवन्त इमे देहा नित्यस्योक्ताः शरीरिणः | अनाशिनोऽप्रमेयस्य तस्माद्युध्यस्व भारत ||२-१८||" </br>
-Translate: "2.18 The material bodies which this Eternal, Indestructible, Immeasurable Spirit inhabits are all finite. Therefore fight, O Valiant Man!" </br>
+"तच्च संस्मृत्य संस्मृत्य रूपमत्यद्भुतं हरेः | विस्मयो मे महान् राजन्हृष्यामि च पुनः पुनः ||१८-७७||" </br>
+Translate: "18.77 As memory recalls again and again the exceeding beauty of the Lord, I am filled with amazement and happiness." </br>
 
 ## Preferences
 <table>

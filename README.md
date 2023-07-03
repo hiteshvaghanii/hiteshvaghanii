@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अथ चेत्त्वमिमं धर्म्यं संग्रामं न करिष्यसि | ततः स्वधर्मं कीर्तिं च हित्वा पापमवाप्स्यसि ||२-३३||" </br>
-Translate: "2.33 Refuse to fight in this righteous cause, and thou wilt be a traitor, lost to fame, incurring only sin." </br>
+"मय्येव मन आधत्स्व मयि बुद्धिं निवेशय | निवसिष्यसि मय्येव अत ऊर्ध्वं न संशयः ||१२-८||" </br>
+Translate: "12.8 Then let thy mind cling only to Me, let thy intellect abide in Me; and without doubt thou shalt live hereafter in Me alone." </br>
 
 ## Preferences
 <table>

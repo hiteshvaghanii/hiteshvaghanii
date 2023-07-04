@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | बहूनि मे व्यतीतानि जन्मानि तव चार्जुन | तान्यहं वेद सर्वाणि न त्वं वेत्थ परन्तप ||४-५||" </br>
-Translate: "4.5 Lord Shri Krishna replied: I have been born again and again, from time to time; thou too,O Arjuna! My births are known to Me, but thou knowest not thine." </br>
+"तपस्विभ्योऽधिको योगी ज्ञानिभ्योऽपि मतोऽधिकः | कर्मिभ्यश्चाधिको योगी तस्माद्योगी भवार्जुन ||६-४६||" </br>
+Translate: "6.46 The wise man is superior to the ascetic and to the scholar and to the man of action; therefore be thou a wise man, O Arjuna!" </br>
 
 ## Preferences
 <table>

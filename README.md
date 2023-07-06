@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"नियतं कुरु कर्म त्वं कर्म ज्यायो ह्यकर्मणः | शरीरयात्रापि च ते न प्रसिद्ध्येदकर्मणः ||३-८||" </br>
-Translate: "3.8 Do thy duty as prescribed, for action for duty's sake is superior to inaction. Even the maintenance of the body would be impossible if man remained inactive." </br>
+"अत्र शूरा महेष्वासा भीमार्जुनसमा युधि | युयुधानो विराटश्च द्रुपदश्च महारथः ||१-४||" </br>
+Translate: "1.4 In it are heroes and great bowmen; the equals in battle of Arjuna and Bheema, Yuyudhana, Virata and Drupada, great soldiers all;" </br>
 
 ## Preferences
 <table>

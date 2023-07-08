@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"स्वभावजेन कौन्तेय निबद्धः स्वेन कर्मणा | कर्तुं नेच्छसि यन्मोहात्करिष्यस्यवशोपि तत् ||१८-६०||" </br>
-Translate: "18.60 O Arjuna! Thy duty binds thee. From thine own nature has it arisen, and that which in thy delusion thou desire not to do, that very thing thou shalt do. Thou art helpless." </br>
+"देवद्विजगुरुप्राज्ञपूजनं शौचमार्जवम् | ब्रह्मचर्यमहिंसा च शारीरं तप उच्यते ||१७-१४||" </br>
+Translate: "17.14 Worship of God and the Master; respect for the preacher and the philosopher; purity, rectitude, continence and harmlessness - all this is physical austerity." </br>
 
 ## Preferences
 <table>

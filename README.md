@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"श्रोत्रं चक्षुः स्पर्शनं च रसनं घ्राणमेव च | अधिष्ठाय मनश्चायं विषयानुपसेवते ||१५-९||" </br>
-Translate: "15.9 He is the perception of the ear, the eye, the touch, the taste and the smell, yea and of the mind also; and the enjoyment the things which they perceive is also His." </br>
+"विहाय कामान्यः सर्वान्पुमांश्चरति निःस्पृहः | निर्ममो निरहङ्कारः स शान्तिमधिगच्छति ||२-७१||" </br>
+Translate: "2.71 He attains Peace who, giving up desire, moves through the world without aspiration, possessing nothing which he can call his own, and free from pride." </br>
 
 ## Preferences
 <table>

@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"उदासीनवदासीनो गुणैर्यो न विचाल्यते | गुणा वर्तन्त इत्येवं योऽवतिष्ठति नेङ्गते ||१४-२३||" </br>
-Translate: "14.23 He who maintains an attitude of indifference, who is not disturbed by the Qualities, who realises that it is only they who act, and remains calm;" </br>
+"ज्ञेयः स नित्यसंन्यासी यो न द्वेष्टि न काङ्क्षति | निर्द्वन्द्वो हि महाबाहो सुखं बन्धात्प्रमुच्यते ||५-३||" </br>
+Translate: "5.3 He is a true ascetic who never desires or dislikes, who is uninfluenced by the opposites and is easily freed from bondage." </br>
 
 ## Preferences
 <table>

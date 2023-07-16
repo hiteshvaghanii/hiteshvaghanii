@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"कार्यमित्येव यत्कर्म नियतं क्रियतेऽर्जुन | सङ्गं त्यक्त्वा फलं चैव स त्यागः सात्त्विको मतः ||१८-९||" </br>
-Translate: "18.9 He who performs an obligatory action, because he believes it to be a duty which ought to be done, without any personal desire to do the act or to receive any return - such renunciation is Pure." </br>
+"सततं कीर्तयन्तो मां यतन्तश्च दृढव्रताः | नमस्यन्तश्च मां भक्त्या नित्ययुक्ता उपासते ||९-१४||" </br>
+Translate: "9.14 Always extolling Me, strenuous, firm in their vows, prostrating themselves before Me, they worship Me continually with concentrated devotion." </br>
 
 ## Preferences
 <table>

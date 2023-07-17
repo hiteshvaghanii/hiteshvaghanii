@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अर्जुन उवाच | सेनयोरुभयोर्मध्ये रथं स्थापय मेऽच्युत ||१-२१||" </br>
-Translate: "1.21 Raising his bow, spoke this to the Lord Shri Krishna: O Infallible! Lord of the earth! Please draw up my chariot betwixt the two armies," </br>
+"कृषिगौरक्ष्यवाणिज्यं वैश्यकर्म स्वभावजम् | परिचर्यात्मकं कर्म शूद्रस्यापि स्वभावजम् ||१८-४४||" </br>
+Translate: "18.44 Agriculture, protection of the cow and trade are the duty of a trader, again in accordance with his nature. The duty of a servant is to serve, and that too agrees with his nature." </br>
 
 ## Preferences
 <table>

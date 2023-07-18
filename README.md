@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"एवं ज्ञात्वा कृतं कर्म पूर्वैरपि मुमुक्षुभिः | कुरु कर्मैव तस्मात्त्वं पूर्वैः पूर्वतरं कृतम् ||४-१५||" </br>
-Translate: "4.15 In the light of wisdom, our ancestors, who sought deliverance, performed their acts. Act thou also, as did our fathers of old." </br>
+"नैव तस्य कृतेनार्थो नाकृतेनेह कश्चन | न चास्य सर्वभूतेषु कश्चिदर्थव्यपाश्रयः ||३-१८||" </br>
+Translate: "3.18 He has nothing to gain by the performance or non-performance of action. His welfare depends not on any contribution that an earthly creature can make." </br>
 
 ## Preferences
 <table>

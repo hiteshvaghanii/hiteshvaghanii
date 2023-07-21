@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"वेदानां सामवेदोऽस्मि देवानामस्मि वासवः | इन्द्रियाणां मनश्चास्मि भूतानामस्मि चेतना ||१०-२२||" </br>
-Translate: "10.22 Of the Vedas I am the Hymns, I am the Electric Force in the Powers of Nature; of the senses I am the Mind; and I am the Intelligence in all that lives." </br>
+"श्रीभगवानुवाच | अनाश्रितः कर्मफलं कार्यं कर्म करोति यः | स संन्यासी च योगी च न निरग्निर्न चाक्रियः ||६-१||" </br>
+Translate: "6.1 "Lord Shri Krishna said: He who acts because it is his duty, not thinking of the consequences, is really spiritual and a true ascetic; and not he who merely observes rituals or who shuns all action." </br>
 
 ## Preferences
 <table>

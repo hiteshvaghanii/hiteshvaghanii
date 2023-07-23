@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अनन्यचेताः सततं यो मां स्मरति नित्यशः | तस्याहं सुलभः पार्थ नित्ययुक्तस्य योगिनः ||८-१४||" </br>
-Translate: "8.14 To him who thinks constantly of Me, and of nothing else, to such an ever-faithful devotee, O Arjuna, am I ever accessible." </br>
+"गामाविश्य च भूतानि धारयाम्यहमोजसा | पुष्णामि चौषधीः सर्वाः सोमो भूत्वा रसात्मकः ||१५-१३||" </br>
+Translate: "15.13 1	enter this world and animate all My creatures with My vitality; and by My cool moonbeams I nourish the plants." </br>
 
 ## Preferences
 <table>

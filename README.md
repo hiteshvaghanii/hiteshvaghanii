@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"त्रैविद्या मां सोमपाः पूतपापा यज्ञैरिष्ट्वा स्वर्गतिं प्रार्थयन्ते | ते पुण्यमासाद्य सुरेन्द्रलोक- मश्नन्ति दिव्यान्दिवि देवभोगान् ||९-२०||" </br>
-Translate: "9.20 Those who are versed in the scriptures, who drink the mystic Soma-juice and are purified from sin, but who while worshipping Me with sacrifices pray that I will lead them to heaven; they reach the holy world where lives the Controller of the Powers of Nature, and they enjoy the feasts of Paradise." </br>
+"भयाद्रणादुपरतं मंस्यन्ते त्वां महारथाः | येषां च त्वं बहुमतो भूत्वा यास्यसि लाघवम् ||२-३५||" </br>
+Translate: "2.35 Great generals will think that thou hast fled from the battlefield through cowardice; though once honoured thou wilt seem despicable." </br>
 
 ## Preferences
 <table>

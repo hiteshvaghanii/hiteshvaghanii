@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"नैते सृती पार्थ जानन्योगी मुह्यति कश्चन | तस्मात्सर्वेषु कालेषु योगयुक्तो भवार्जुन ||८-२७||" </br>
-Translate: "8.27 O Arjuna! The saint knowing these paths is not confused. Therefore meditate perpetually." </br>
+"सञ्जय उवाच | एवमुक्त्वार्जुनः सङ्ख्ये रथोपस्थ उपाविशत् | विसृज्य सशरं चापं शोकसंविग्नमानसः ||१-४७||" </br>
+Translate: "1.47 Sanjaya said: "Having spoken thus, in the midst of the armies, Arjuna sank on the seat of the chariot, casting away his bow and arrow; heartbroken with grief."" </br>
 
 ## Preferences
 <table>

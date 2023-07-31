@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"ये हि संस्पर्शजा भोगा दुःखयोनय एव ते | आद्यन्तवन्तः कौन्तेय न तेषु रमते बुधः ||५-२२||" </br>
-Translate: "5.22 The joys that spring from external associations bring pain; they have their beginning and their endings. The wise man does not rejoice in them." </br>
+"यः शास्त्रविधिमुत्सृज्य वर्तते कामकारतः | न स सिद्धिमवाप्नोति न सुखं न परां गतिम् ||१६-२३||" </br>
+Translate: "16.23 But he who neglects the commands of the scriptures, and follows the promptings of passion, he does not attain perfection, happiness or the final goal." </br>
 
 ## Preferences
 <table>

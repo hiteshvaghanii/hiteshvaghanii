@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"मन्मना भव मद्भक्तो मद्याजी मां नमस्कुरु | मामेवैष्यसि सत्यं ते प्रतिजाने प्रियोऽसि मे ||१८-६५||" </br>
-Translate: "18.65 Dedicate thyself to Me, worship Me, sacrifice all for Me, prostrate thyself before Me, and to Me thou shalt surely come. Truly do I pledge thee; thou art My own beloved." </br>
+"अक्षराणामकारोऽस्मि द्वन्द्वः सामासिकस्य च | अहमेवाक्षयः कालो धाताहं विश्वतोमुखः ||१०-३३||" </br>
+Translate: "10.33 Of letters I am A; I am the copulative in compound words; I am Time inexhaustible; and I am the all-pervading Preserver." </br>
 
 ## Preferences
 <table>

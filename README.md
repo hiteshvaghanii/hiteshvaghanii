@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अपरे नियताहाराः प्राणान्प्राणेषु जुह्वति | सर्वेऽप्येते यज्ञविदो यज्ञक्षपितकल्मषाः ||४-३०||" </br>
-Translate: "4.30 Others, controlling their diet, sacrifice their worldly life to the spiritual fire. All understand the principal of sacrifice, and by its means their sins are washed away." </br>
+"भवाप्ययौ हि भूतानां श्रुतौ विस्तरशो मया | त्वत्तः कमलपत्राक्ष माहात्म्यमपि चाव्ययम् ||११-२||" </br>
+Translate: "11.2 O Lord, whose eyes are like the lotus petal! Thou hast described in detail the origin and the dissolution of being, and Thine own Eternal Majesty." </br>
 
 ## Preferences
 <table>

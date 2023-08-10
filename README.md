@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"असौ मया हतः शत्रुर्हनिष्ये चापरानपि | ईश्वरोऽहमहं भोगी सिद्धोऽहं बलवान्सुखी ||१६-१४||" </br>
-Translate: "16.14 I have slain one enemy, I will slay the others also; I am worthy to enjoy, I am the Almighty, I am perfect, powerful and happy;" </br>
+"दैवमेवापरे यज्ञं योगिनः पर्युपासते | ब्रह्माग्नावपरे यज्ञं यज्ञेनैवोपजुह्वति ||४-२५||" </br>
+Translate: "4.25 Some sages sacrifice to the Powers; others offer themselves on the alter of the Eternal." </br>
 
 ## Preferences
 <table>

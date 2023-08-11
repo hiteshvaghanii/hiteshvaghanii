@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"इहैकस्थं जगत्कृत्स्नं पश्याद्य सचराचरम् | मम देहे गुडाकेश यच्चान्यद् द्रष्टुमिच्छसि ||११-७||" </br>
-Translate: "11.7 Here in Me living as one, O Arjuna, behold the whole universe, movable and immovable, and anything else that thou wouldst see!" </br>
+"य एवं वेत्ति पुरुषं प्रकृतिं च गुणैः सह | सर्वथा वर्तमानोऽपि न स भूयोऽभिजायते ||१३-२४||" </br>
+Translate: "13.24 He who understands God and Nature along with her qualities, whatever be his condition in life, he comes not again to earth." </br>
 
 ## Preferences
 <table>

@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अपि चेदसि पापेभ्यः सर्वेभ्यः पापकृत्तमः | सर्वं ज्ञानप्लवेनैव वृजिनं सन्तरिष्यसि ||४-३६||" </br>
-Translate: "4.36 Be thou the greatest of sinners, yet thou shalt cross over all sin by the ferryboat of wisdom." </br>
+"उद्धरेदात्मनात्मानं नात्मानमवसादयेत् | आत्मैव ह्यात्मनो बन्धुरात्मैव रिपुरात्मनः ||६-५||" </br>
+Translate: "6.5 Let him seek liberation by the help of his Highest Self, and let him never disgrace his own Self. For that Self is his only friend; yet it may also be his enemy." </br>
 
 ## Preferences
 <table>

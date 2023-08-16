@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"शौर्यं तेजो धृतिर्दाक्ष्यं युद्धे चाप्यपलायनम् | दानमीश्वरभावश्च क्षात्रं कर्म स्वभावजम् ||१८-४३||" </br>
-Translate: "18.43 Valour, glory, firmness, skill, generosity, steadiness in battle and ability to rule - these constitute the duty of a soldier. They flow from his own nature." </br>
+"येषामर्थे काङ्क्षितं नो राज्यं भोगाः सुखानि च | त इमेऽवस्थिता युद्धे प्राणांस्त्यक्त्वा धनानि च ||१-३३||" </br>
+Translate: "1.33 When those for whose sake I desire these things stand here about to sacrifice their property and their lives:" </br>
 
 ## Preferences
 <table>

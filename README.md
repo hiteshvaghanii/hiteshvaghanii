@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अर्जुन उवाच | स्थाने हृषीकेश तव प्रकीर्त्या जगत्प्रहृष्यत्यनुरज्यते च | रक्षांसि भीतानि दिशो द्रवन्ति सर्वे नमस्यन्ति च सिद्धसङ्घाः ||११-३६||" </br>
-Translate: "11.36 Arjuna said: My Lord! It is natural that the world revels and rejoices when it sings the praises of Thy glory; the demons fly in fear and the saints offer Thee their salutations." </br>
+"इति गुह्यतमं शास्त्रमिदमुक्तं मयानघ | एतद्बुद्ध्वा बुद्धिमान्स्यात्कृतकृत्यश्च भारत ||१५-२०||" </br>
+Translate: "15.20 Thus, O Sinless One, I have revealed to thee this most mystic knowledge. He who understands gains wisdom and attains the consummation of life."" </br>
 
 ## Preferences
 <table>

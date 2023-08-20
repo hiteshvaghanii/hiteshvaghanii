@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अर्जुन उवाच | मदनुग्रहाय परमं गुह्यमध्यात्मसंज्ञितम् | यत्त्वयोक्तं वचस्तेन मोहोऽयं विगतो मम ||११-१||" </br>
-Translate: "11.1 "Arjuna said: My Lord! Thy words concerning the Supreme Secret of Self, given for my blessing, have dispelled the illusions which surrounded me." </br>
+"यदा सत्त्वे प्रवृद्धे तु प्रलयं याति देहभृत् | तदोत्तमविदां लोकानमलान्प्रतिपद्यते ||१४-१४||" </br>
+Translate: "14.14 When Purity prevails, the soul on quitting the body passes on to the pure regions where live those who know the Highest." </br>
 
 ## Preferences
 <table>

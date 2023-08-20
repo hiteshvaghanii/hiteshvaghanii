@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"तेषामेवानुकम्पार्थमहमज्ञानजं तमः | नाशयाम्यात्मभावस्थो ज्ञानदीपेन भास्वता ||१०-११||" </br>
-Translate: "10.11 By My grace, I live in their hearts; and I dispel the darkness of ignorance by the shining light of wisdom." </br>
+"सर्वमेतदृतं मन्ये यन्मां वदसि केशव | न हि ते भगवन्व्यक्तिं विदुर्देवा न दानवाः ||१०-१४||" </br>
+Translate: "10.14 I believe in what Thou hast said, my Lord! For neither the godly not the godless comprehend Thy manifestation." </br>
 
 ## Preferences
 <table>

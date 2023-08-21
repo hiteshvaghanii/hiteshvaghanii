@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"न द्वेष्ट्यकुशलं कर्म कुशले नानुषज्जते | त्यागी सत्त्वसमाविष्टो मेधावी छिन्नसंशयः ||१८-१०||" </br>
-Translate: "18.10 The wise man who has attained purity, whose doubts are solved, who is filled with the spirit of self-abnegation, does not shrink from action because it brings pain, nor does he desire it because it brings pleasure." </br>
+"यः शास्त्रविधिमुत्सृज्य वर्तते कामकारतः | न स सिद्धिमवाप्नोति न सुखं न परां गतिम् ||१६-२३||" </br>
+Translate: "16.23 But he who neglects the commands of the scriptures, and follows the promptings of passion, he does not attain perfection, happiness or the final goal." </br>
 
 ## Preferences
 <table>

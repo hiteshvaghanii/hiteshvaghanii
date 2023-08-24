@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"यो मामजमनादिं च वेत्ति लोकमहेश्वरम् | असम्मूढः स मर्त्येषु सर्वपापैः प्रमुच्यते ||१०-३||" </br>
-Translate: "10.3 He who knows Me as the unborn, without beginning, the Lord of the universe, he, stripped of his delusion, becomes free from all conceivable sin." </br>
+"अमी हि त्वां सुरसङ्घा विशन्ति केचिद्भीताः प्राञ्जलयो गृणन्ति | स्वस्तीत्युक्त्वा महर्षिसिद्धसङ्घाः स्तुवन्ति त्वां स्तुतिभिः पुष्कलाभिः ||११-२१||" </br>
+Translate: "11.21 The troops of celestial beings enter into Thee, some invoking Thee in fear, with folded palms; the Great Seers and Adepts sing hymns to Thy Glory, saying All Hail.'" </br>
 
 ## Preferences
 <table>

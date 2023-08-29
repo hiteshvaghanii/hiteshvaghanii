@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"यदा संहरते चायं कूर्मोऽङ्गानीव सर्वशः | इन्द्रियाणीन्द्रियार्थेभ्यस्तस्य प्रज्ञा प्रतिष्ठिता ||२-५८||" </br>
-Translate: "2.58 He who can withdraw his senses from the attraction of their objects, as the tortoise draws his limbs within its shell - take it that such a one has attained Perfection." </br>
+"श्रोत्रादीनीन्द्रियाण्यन्ये संयमाग्निषु जुह्वति | शब्दादीन्विषयानन्य इन्द्रियाग्निषु जुह्वति ||४-२६||" </br>
+Translate: "4.26 Some sacrifice their physical senses in the fire of self-control; others offer up their contact with external objects in the sacrificial fire of their senses." </br>
 
 ## Preferences
 <table>

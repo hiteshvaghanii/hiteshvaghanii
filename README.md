@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"वक्त्राणि ते त्वरमाणा विशन्ति दंष्ट्राकरालानि भयानकानि | केचिद्विलग्ना दशनान्तरेषु सन्दृश्यन्ते चूर्णितैरुत्तमाङ्गैः ||११-२७||" </br>
-Translate: "11.27 1	see them all rushing headlong into Thy mouths, with terrible tusks, horrible to behold. Some are mangled between thy jaws, with their heads crushed to atoms." </br>
+"भूतग्रामः स एवायं भूत्वा भूत्वा प्रलीयते | रात्र्यागमेऽवशः पार्थ प्रभवत्यहरागमे ||८-१९||" </br>
+Translate: "8.19 The same multitude of beings, which have lived on earth so often, all are dissolved as the night of the universe approaches, to issue forth anew when morning breaks. Thus is it ordained." </br>
 
 ## Preferences
 <table>

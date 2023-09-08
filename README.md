@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"पश्यादित्यान्वसून्रुद्रानश्विनौ मरुतस्तथा | बहून्यदृष्टपूर्वाणि पश्याश्चर्याणि भारत ||११-६||" </br>
-Translate: "11.6 Behold thou the Powers of Nature: fire, earth, wind and sky; the sun, the heavens, the moon, the stars; all forces of vitality and of healing; and the roving winds. See the myriad wonders revealed to none but thee." </br>
+"त्रिभिर्गुणमयैर्भावैरेभिः सर्वमिदं जगत् | मोहितं नाभिजानाति मामेभ्यः परमव्ययम् ||७-१३||" </br>
+Translate: "7.13 The inhabitants of the world, misled by those natures which the Qualities have engendered, know not that I am higher than them all, and that I do not change." </br>
 
 ## Preferences
 <table>

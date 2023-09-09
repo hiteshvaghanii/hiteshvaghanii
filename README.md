@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"सहस्रयुगपर्यन्तमहर्यद् ब्रह्मणो विदुः | रात्रिं युगसहस्रान्तां तेऽहोरात्रविदो जनाः ||८-१७||" </br>
-Translate: "8.17 Those who understand the cosmic day and cosmic night know that one day of creation is a thousand cycles, and that the night is of equal length." </br>
+"ये चैव सात्त्विका भावा राजसास्तामसाश्च ये | मत्त एवेति तान्विद्धि न त्वहं तेषु ते मयि ||७-१२||" </br>
+Translate: "7.12 Whatever be the nature of their life, whether it be pure or passionate or ignorant, they are all derived from Me. They are in Me, but I am not in them." </br>
 
 ## Preferences
 <table>

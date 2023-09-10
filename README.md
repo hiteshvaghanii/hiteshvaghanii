@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अनन्तविजयं राजा कुन्तीपुत्रो युधिष्ठिरः | नकुलः सहदेवश्च सुघोषमणिपुष्पकौ ||१-१६||" </br>
-Translate: "1.16 The King Dharmaraja, the son of Kunti, blew the Anantavijaya, Nakalu and Sahadeo, the Sugosh and Manipushpaka, respectively." </br>
+"यावानर्थ उदपाने सर्वतः सम्प्लुतोदके | तावान्सर्वेषु वेदेषु ब्राह्मणस्य विजानतः ||२-४६||" </br>
+Translate: "2.46 As a man can drink water from any side of a full tank, so the skilled theologian can wrest from any scripture that which will serve his purpose." </br>
 
 ## Preferences
 <table>

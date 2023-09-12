@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"यस्य सर्वे समारम्भाः कामसङ्कल्पवर्जिताः | ज्ञानाग्निदग्धकर्माणं तमाहुः पण्डितं बुधाः ||४-१९||" </br>
-Translate: "4.19 The wise call him a sage, for whatever he undertakes is free from the motive of desire, and his deeds are purified by the fire of Wisdom." </br>
+"यं लब्ध्वा चापरं लाभं मन्यते नाधिकं ततः | यस्मिन्स्थितो न दुःखेन गुरुणापि विचाल्यते ||६-२२||" </br>
+Translate: "6.22 Finding That, he will realise that there is no possession so precious. And when once established here, no calamity can disturb him." </br>
 
 ## Preferences
 <table>

@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"प्रवृत्तिं च निवृत्तिं च जना न विदुरासुराः | न शौचं नापि चाचारो न सत्यं तेषु विद्यते ||१६-७||" </br>
-Translate: "16.7 The godless do not know how to act or how to renounce. They have neither purity nor truth. They do not understand the right principles of conduct." </br>
+"अफलाङ्क्षिभिर्यज्ञो विधिदृष्टो य इज्यते | यष्टव्यमेवेति मनः समाधाय स सात्त्विकः ||१७-११||" </br>
+Translate: "17.11 Sacrifice is Pure when it is offered by one who does not covet the fruit thereof, when it is done according to the commands of scripture, and with implicit faith that the sacrifice is a duty." </br>
 
 ## Preferences
 <table>

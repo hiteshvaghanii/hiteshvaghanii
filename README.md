@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"यया तु धर्मकामार्थान्धृत्या धारयतेऽर्जुन | प्रसङ्गेन फलाकाङ्क्षी धृतिः सा पार्थ राजसी ||१८-३४||" </br>
-Translate: "18.34 The conviction which always holds fast to rituals, to self-interest and wealth, for the sake of what they may bring forth - that comes from Passion." </br>
+"यजन्ते सात्त्विका देवान्यक्षरक्षांसि राजसाः | प्रेतान्भूतगणांश्चान्ये यजन्ते तामसा जनाः ||१७-४||" </br>
+Translate: "17.4 The Pure worship the true God; the Passionate, the powers of wealth and magic; the Ignorant, the spirits of the dead and of the lower orders of nature." </br>
 
 ## Preferences
 <table>

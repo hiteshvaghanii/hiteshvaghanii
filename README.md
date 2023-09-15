@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"वेदेषु यज्ञेषु तपःसु चैव दानेषु यत्पुण्यफलं प्रदिष्टम् | अत्येति तत्सर्वमिदं विदित्वा योगी परं स्थानमुपैति चाद्यम् ||८-२८||" </br>
-Translate: "8.28 The sage who knows this passes beyond all merit that comes from the study of the scriptures, from sacrifice, from austerities and charity, and reaches the Supreme Primeval Abode."" </br>
+"मन्यसे यदि तच्छक्यं मया द्रष्टुमिति प्रभो | योगेश्वर ततो मे त्वं दर्शयात्मानमव्ययम् ||११-४||" </br>
+Translate: "11.4 If Thou thinkest that it can be made possible for me to see it, show me, O Lord of Lords, Thine own Eternal Self." </br>
 
 ## Preferences
 <table>

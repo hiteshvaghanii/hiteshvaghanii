@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"परस्तस्मात्तु भावोऽन्योऽव्यक्तोऽव्यक्तात्सनातनः | यः स सर्वेषु भूतेषु नश्यत्सु न विनश्यति ||८-२०||" </br>
-Translate: "8.20 In truth, therefore, there is the Eternal Unmanifest, which is beyond and above the Unmanifest Spirit of Creation, which is never destroyed when all these being perish." </br>
+"ऊर्ध्वं गच्छन्ति सत्त्वस्था मध्ये तिष्ठन्ति राजसाः | जघन्यगुणवृत्तिस्था अधो गच्छन्ति तामसाः ||१४-१८||" </br>
+Translate: "14.18 When Purity is in the ascendant, the man evolves; when Passion, he neither evolves nor degenerates; when Ignorance, he is lost." </br>
 
 ## Preferences
 <table>

@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"राजन्संस्मृत्य संस्मृत्य संवादमिममद्भुतम् | केशवार्जुनयोः पुण्यं हृष्यामि च मुहुर्मुहुः ||१८-७६||" </br>
-Translate: "18.76 O King! The more I think of that marvellous and holy discourse, the more I lose myself in joy." </br>
+"अच्छेद्योऽयमदाह्योऽयमक्लेद्योऽशोष्य एव च | नित्यः सर्वगतः स्थाणुरचलोऽयं सनातनः ||२-२४||" </br>
+Translate: "2.24 It is impenetrable; It can be neither drowned nor scorched nor dried. It is Eternal, All-pervading, Unchanging, Immovable and Most Ancient." </br>
 
 ## Preferences
 <table>

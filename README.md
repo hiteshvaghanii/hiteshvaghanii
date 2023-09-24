@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"मत्तः परतरं नान्यत्किञ्चिदस्ति धनञ्जय | मयि सर्वमिदं प्रोतं सूत्रे मणिगणा इव ||७-७||" </br>
-Translate: "7.7 O Arjuna! There is nothing higher than Me; all is strung upon Me as rows of pearls upon a thread." </br>
+"अर्जुन उवाच | कैर्लिङ्गैस्त्रीन्गुणानेतानतीतो भवति प्रभो | किमाचारः कथं चैतांस्त्रीन्गुणानतिवर्तते ||१४-२१||" </br>
+Translate: "14.21 Arjuna asked: My Lord! By what signs can he who has transcended the Qualities be recognized? How does he act? How does he live beyond them?" </br>
 
 ## Preferences
 <table>

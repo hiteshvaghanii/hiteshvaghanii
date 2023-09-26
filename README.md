@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अपरेयमितस्त्वन्यां प्रकृतिं विद्धि मे पराम् | जीवभूतां महाबाहो ययेदं धार्यते जगत् ||७-५||" </br>
-Translate: "7.5 This is My inferior Nature; but distinct from this, O Valiant One, know thou that my Superior Nature is the very Life which sustains the universe." </br>
+"सद्भावे साधुभावे च सदित्येतत्प्रयुज्यते | प्रशस्ते कर्मणि तथा सच्छब्दः पार्थ युज्यते ||१७-२६||" </br>
+Translate: "17.26 Sat' means Reality or the highest Good, and also, O Arjuna, it is used to mean an action of exceptional merit." </br>
 
 ## Preferences
 <table>

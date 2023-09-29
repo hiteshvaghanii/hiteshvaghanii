@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"ओमित्येकाक्षरं ब्रह्म व्याहरन्मामनुस्मरन् | यः प्रयाति त्यजन्देहं स याति परमां गतिम् ||८-१३||" </br>
-Translate: "8.13 Repeating Om, the Symbol of Eternity, holding Me always in remembrance, he who thus leaves his body and goes forth reaches the Spirit Supreme." </br>
+"सर्वगुह्यतमं भूयः शृणु मे परमं वचः | इष्टोऽसि मे दृढमिति ततो वक्ष्यामि ते हितम् ||१८-६४||" </br>
+Translate: "18.64 Only listen once more to My last word, the deepest secret of all; thou art My beloved, thou are My friend, and I speak for thy welfare." </br>
 
 ## Preferences
 <table>
@@ -120,6 +120,6 @@ If you like this project, please consider donating so we can keep this projects 
 ### Connect with Me
 
 <p align="left">
-<a href="https://www.linkedin.com/in/hitesh-vaghani" target="blank"><img align="center" src="https://www.svgrepo.com/show/357962/linkedin-alt.svg" alt="hitesh" height="30" width="40" /></a>
-<a href="https://stackoverflow.com/users/18525424/hitesh-vaghani" target="blank"><img align="center" src="https://stackoverflow.design/assets/img/logos/so/logo-stackoverflow.svg" alt="hitesh" height="30" width="40" /></a>
+<a href="https://www.linkedin.com/in/hitesh-vaghani" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="hitesh" height="30" width="40" /></a>
+<a href="https://stackoverflow.com/users/18525424/hitesh-vaghani" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/stack-overflow.svg" alt="hitesh" height="30" width="40" /></a>
 </p>

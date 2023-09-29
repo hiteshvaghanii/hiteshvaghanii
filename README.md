@@ -53,7 +53,7 @@ Thanks & Regards !!! :)  ✨
 
 <p align="center">
    <a href="https://github.com/hiteshvaghanii/">
-   <img src="https://github-readme-activity-graph.cyclic.app/graph?username=hiteshvaghanii&bg_color=0d1117&color=5bcdec&line=5bcdec&point=f97784&area=true&hide_border=true" width="100%">
+   <img src="https://github-readme-activity-graph.vercel.app/graph?username=hiteshvaghanii&bg_color=0d1117&color=5bcdec&line=5bcdec&point=f97784&area=true&hide_border=true" width="100%">
    </a>
 </p>
 </br>
@@ -120,6 +120,6 @@ If you like this project, please consider donating so we can keep this projects 
 ### Connect with Me
 
 <p align="left">
-<a href="https://www.linkedin.com/in/hitesh-vaghani" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="hitesh" height="30" width="40" /></a>
-<a href="https://stackoverflow.com/users/18525424/hitesh-vaghani" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/stack-overflow.svg" alt="hitesh" height="30" width="40" /></a>
+<a href="https://www.linkedin.com/in/hitesh-vaghani" target="blank"><img align="center" src="https://www.svgrepo.com/show/357962/linkedin-alt.svg" alt="hitesh" height="30" width="40" /></a>
+<a href="https://stackoverflow.com/users/18525424/hitesh-vaghani" target="blank"><img align="center" src="https://stackoverflow.design/assets/img/logos/so/logo-stackoverflow.svg" alt="hitesh" height="30" width="40" /></a>
 </p>

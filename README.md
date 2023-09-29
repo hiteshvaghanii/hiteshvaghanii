@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अर्जुन उवाच | संन्यासस्य महाबाहो तत्त्वमिच्छामि वेदितुम् | त्यागस्य च हृषीकेश पृथक्केशिनिषूदन ||१८-१||" </br>
-Translate: "18.1 "Arjuna asked: O mighty One! I desire to know how relinquishment is distinguished from renunciation." </br>
+"ओमित्येकाक्षरं ब्रह्म व्याहरन्मामनुस्मरन् | यः प्रयाति त्यजन्देहं स याति परमां गतिम् ||८-१३||" </br>
+Translate: "8.13 Repeating Om, the Symbol of Eternity, holding Me always in remembrance, he who thus leaves his body and goes forth reaches the Spirit Supreme." </br>
 
 ## Preferences
 <table>

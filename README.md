@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"येषामर्थे काङ्क्षितं नो राज्यं भोगाः सुखानि च | त इमेऽवस्थिता युद्धे प्राणांस्त्यक्त्वा धनानि च ||१-३३||" </br>
-Translate: "1.33 When those for whose sake I desire these things stand here about to sacrifice their property and their lives:" </br>
+"न हि ज्ञानेन सदृशं पवित्रमिह विद्यते | तत्स्वयं योगसंसिद्धः कालेनात्मनि विन्दति ||४-३८||" </br>
+Translate: "4.38 There is nothing in the world so purifying as wisdom; and he who is a perfect saint finds that at last in his own Self." </br>
 
 ## Preferences
 <table>

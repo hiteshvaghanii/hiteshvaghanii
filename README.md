@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"सर्वेन्द्रियगुणाभासं सर्वेन्द्रियविवर्जितम् | असक्तं सर्वभृच्चैव निर्गुणं गुणभोक्तृ च ||१३-१५||" </br>
-Translate: "13.15 Beyond the senses, It yet shines through every sense perception. Bound to nothing, It yet sustains everything. Unaffected by the Qualities, It still enjoys them all." </br>
+"अमी च त्वां धृतराष्ट्रस्य पुत्राः सर्वे सहैवावनिपालसङ्घैः | भीष्मो द्रोणः सूतपुत्रस्तथासौ सहास्मदीयैरपि योधमुख्यैः ||११-२६||" </br>
+Translate: "11.26 All these sons of Dhritarashtra, with the hosts of princes, Bheeshma, Drona and Karna, as well as the other warrior chiefs belonging to our side;" </br>
 
 ## Preferences
 <table>

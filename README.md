@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"येषामर्थे काङ्क्षितं नो राज्यं भोगाः सुखानि च | त इमेऽवस्थिता युद्धे प्राणांस्त्यक्त्वा धनानि च ||१-३३||" </br>
-Translate: "1.33 When those for whose sake I desire these things stand here about to sacrifice their property and their lives:" </br>
+"किं पुनर्ब्राह्मणाः पुण्या भक्ता राजर्षयस्तथा | अनित्यमसुखं लोकमिमं प्राप्य भजस्व माम् ||९-३३||" </br>
+Translate: "9.33 What need then to mention the holy Ministers of God, the devotees and the saintly rulers? Do thou, therefore, born in this changing and miserable world, do thou too worship Me." </br>
 
 ## Preferences
 <table>

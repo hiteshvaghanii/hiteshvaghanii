@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"सद्भावे साधुभावे च सदित्येतत्प्रयुज्यते | प्रशस्ते कर्मणि तथा सच्छब्दः पार्थ युज्यते ||१७-२६||" </br>
-Translate: "17.26 Sat' means Reality or the highest Good, and also, O Arjuna, it is used to mean an action of exceptional merit." </br>
+"न रूपमस्येह तथोपलभ्यते नान्तो न चादिर्न च सम्प्रतिष्ठा | अश्वत्थमेनं सुविरूढमूलं असङ्गशस्त्रेण दृढेन छित्त्वा ||१५-३||" </br>
+Translate: "15.3 In this world its true form is not known, neither its origin nor its end, and its strength is not understood., until the tree with its roots striking deep into the earth is hewn down by the sharp axe of non-attachment." </br>
 
 ## Preferences
 <table>

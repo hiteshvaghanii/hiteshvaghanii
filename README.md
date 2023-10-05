@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"कर्षयन्तः शरीरस्थं भूतग्राममचेतसः | मां चैवान्तःशरीरस्थं तान्विद्ध्यासुरनिश्चयान् ||१७-६||" </br>
-Translate: "17.6 They are ignorant. They torment the organs of the body; and they harass Me also, Who lives within. Know that they are devoted to evil." </br>
+"यं हि न व्यथयन्त्येते पुरुषं पुरुषर्षभ | समदुःखसुखं धीरं सोऽमृतत्वाय कल्पते ||२-१५||" </br>
+Translate: "2.15 The hero whose soul is unmoved by circumstance, who accepts pleasure and pain with equanimity, only he is fit for immortality." </br>
 
 ## Preferences
 <table>

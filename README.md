@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"किं कर्म किमकर्मेति कवयोऽप्यत्र मोहिताः | तत्ते कर्म प्रवक्ष्यामि यज्ज्ञात्वा मोक्ष्यसेऽशुभात् ||४-१६||" </br>
-Translate: "4.16 What is action and what is inaction? It is a question which has bewildered the wise. But I will declare unto thee the philosophy of action, and knowing it, thou shalt be free from evil." </br>
+"सद्भावे साधुभावे च सदित्येतत्प्रयुज्यते | प्रशस्ते कर्मणि तथा सच्छब्दः पार्थ युज्यते ||१७-२६||" </br>
+Translate: "17.26 Sat' means Reality or the highest Good, and also, O Arjuna, it is used to mean an action of exceptional merit." </br>
 
 ## Preferences
 <table>

@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"तेषां ज्ञानी नित्ययुक्त एकभक्तिर्विशिष्यते | प्रियो हि ज्ञानिनोऽत्यर्थमहं स च मम प्रियः ||७-१७||" </br>
-Translate: "7.17 Of all of these, he who has gained wisdom, who meditates on Me without ceasing, devoting himself only to Me, he is the best; for by the wise man I am exceedingly beloved and the wise man, too, is beloved by Me." </br>
+"यथैधांसि समिद्धोऽग्निर्भस्मसात्कुरुतेऽर्जुन | ज्ञानाग्निः सर्वकर्माणि भस्मसात्कुरुते तथा ||४-३७||" </br>
+Translate: "4.37 As the kindled fire consumes the fuel, so, O Arjuna, in the flame of wisdom the embers of action are burnt to ashes." </br>
 
 ## Preferences
 <table>

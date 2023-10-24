@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"ब्रह्मणो हि प्रतिष्ठाहममृतस्याव्ययस्य च | शाश्वतस्य च धर्मस्य सुखस्यैकान्तिकस्य च ||१४-२७||" </br>
-Translate: "14.27 For I am the Home of the Spirit, the continual Source of immortality, of eternal Righteousness and of infinite Joy."" </br>
+"अश्रद्दधानाः पुरुषा धर्मस्यास्य परन्तप | अप्राप्य मां निवर्तन्ते मृत्युसंसारवर्त्मनि ||९-३||" </br>
+Translate: "9.3 They who have no faith in this teaching cannot find Me, but remain lost in the purlieus of this perishable world." </br>
 
 ## Preferences
 <table>

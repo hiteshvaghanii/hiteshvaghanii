@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"सङ्कल्पप्रभवान्कामांस्त्यक्त्वा सर्वानशेषतः | मनसैवेन्द्रियग्रामं विनियम्य समन्ततः ||६-२४||" </br>
-Translate: "6.24 Renouncing every desire which imagination can conceive, controlling the senses at every point by the power of mind;" </br>
+"रजो रागात्मकं विद्धि तृष्णासङ्गसमुद्भवम् | तन्निबध्नाति कौन्तेय कर्मसङ्गेन देहिनम् ||१४-७||" </br>
+Translate: "14.7 Passion, engendered by thirst for pleasure and attachment, binds the soul through its fondness for activity." </br>
 
 ## Preferences
 <table>

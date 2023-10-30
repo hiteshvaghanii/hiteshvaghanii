@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अदृष्टपूर्वं हृषितोऽस्मि दृष्ट्वा भयेन च प्रव्यथितं मनो मे | तदेव मे दर्शय देव रूपं प्रसीद देवेश जगन्निवास ||११-४५||" </br>
-Translate: "11.45 I rejoice that I have seen what never man saw before; yet, O Lord! I am overwhelmed with fear. Please take again the Form I know. Be merciful, O Lord! thou Who are the Home of the whole universe." </br>
+"कर्म ब्रह्मोद्भवं विद्धि ब्रह्माक्षरसमुद्भवम् | तस्मात्सर्वगतं ब्रह्म नित्यं यज्ञे प्रतिष्ठितम् ||३-१५||" </br>
+Translate: "3.15 All action originates in the Supreme Spirit, which is Imperishable, and in sacrificial action the all-pervading Spirit is consciously present." </br>
 
 ## Preferences
 <table>

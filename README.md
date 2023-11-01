@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"मयाध्यक्षेण प्रकृतिः सूयते सचराचरम् | हेतुनानेन कौन्तेय जगद्विपरिवर्तते ||९-१०||" </br>
-Translate: "9.10 Under my guidance, Nature produces all things movable and immovable. Thus it is, O Arjuna, that this universe revolves." </br>
+"सञ्जय उवाच | तं तथा कृपयाविष्टमश्रुपूर्णाकुलेक्षणम् | विषीदन्तमिदं वाक्यमुवाच मधुसूदनः ||२-१||" </br>
+Translate: "2.1 Sanjaya then told how the Lord Shri Krishna, seeing Arjuna overwhelmed with compassion, his eyes dimmed with flowing tears and full of despondency, consoled him:" </br>
 
 ## Preferences
 <table>

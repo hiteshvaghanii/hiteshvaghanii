@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"क्लेशोऽधिकतरस्तेषामव्यक्तासक्तचेतसाम् | अव्यक्ता हि गतिर्दुःखं देहवद्भिरवाप्यते ||१२-५||" </br>
-Translate: "12.5 But they who thus fix their attention on the Absolute and Impersonal encounter greater hardships, for it is difficult for those who possess a body to realise Me as without one." </br>
+"अदृष्टपूर्वं हृषितोऽस्मि दृष्ट्वा भयेन च प्रव्यथितं मनो मे | तदेव मे दर्शय देव रूपं प्रसीद देवेश जगन्निवास ||११-४५||" </br>
+Translate: "11.45 I rejoice that I have seen what never man saw before; yet, O Lord! I am overwhelmed with fear. Please take again the Form I know. Be merciful, O Lord! thou Who are the Home of the whole universe." </br>
 
 ## Preferences
 <table>

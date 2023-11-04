@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"प्रलपन्विसृजन्गृह्णन्नुन्मिषन्निमिषन्नपि | इन्द्रियाणीन्द्रियार्थेषु वर्तन्त इति धारयन् ||५-९||" </br>
-Translate: "5.9 Though he talks, though he gives and receives, though he opens his eyes and shuts them, he still knows that his senses are merely disporting themselves among the objects of perception." </br>
+"देवान्भावयतानेन ते देवा भावयन्तु वः | परस्परं भावयन्तः श्रेयः परमवाप्स्यथ ||३-११||" </br>
+Translate: "3.11 Worship the Powers of Nature thereby, and let them nourish you in return; thus supporting each other, you shall attain your highest welfare." </br>
 
 ## Preferences
 <table>

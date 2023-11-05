@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"न जायते म्रियते वा कदाचिन् नायं भूत्वा भविता वा न भूयः | अजो नित्यः शाश्वतोऽयं पुराणो न हन्यते हन्यमाने शरीरे ||२-२०||" </br>
-Translate: "2.20 It was not born; It will never die, nor once having been, can It cease to be. Unborn, Eternal, Ever-enduring, yet Most Ancient, the Spirit dies not when the body is dead." </br>
+"वेदाविनाशिनं नित्यं य एनमजमव्ययम् | कथं स पुरुषः पार्थ कं घातयति हन्ति कम् ||२-२१||" </br>
+Translate: "2.21 He who knows the Spirit as Indestructible, Immortal, Unborn, Always-the-Same, how should he kill or cause to be killed?" </br>
 
 ## Preferences
 <table>

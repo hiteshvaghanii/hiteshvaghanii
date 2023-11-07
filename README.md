@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"मां हि पार्थ व्यपाश्रित्य येऽपि स्युः पापयोनयः | स्त्रियो वैश्यास्तथा शूद्रास्तेऽपि यान्ति परां गतिम् ||९-३२||" </br>
-Translate: "9.32 For even the children of sinful parents, and those miscalled the weaker sex, and merchants, and labourers, if only they will make Me their refuge, they shall attain the Highest." </br>
+"यद्यदाचरति श्रेष्ठस्तत्तदेवेतरो जनः | स यत्प्रमाणं कुरुते लोकस्तदनुवर्तते ||३-२१||" </br>
+Translate: "3.21 For whatever a great man does, others imitate. People conform to the standard which he has set." </br>
 
 ## Preferences
 <table>

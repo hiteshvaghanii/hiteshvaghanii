@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"रागद्वेषविमुक्तैस्तु विषयानिन्द्रियैश्चरन् | (or वियुक्तैस्तु) आत्मवश्यैर्विधेयात्मा प्रसादमधिगच्छति ||२-६४||" </br>
-Translate: "2.64 But the self-controlled soul, who moves amongst sense objects, free from either attachment or repulsion, he wins eternal Peace." </br>
+"धृत्या यया धारयते मनःप्राणेन्द्रियक्रियाः | योगेनाव्यभिचारिण्या धृतिः सा पार्थ सात्त्विकी ||१८-३३||" </br>
+Translate: "18.33 The conviction and steady concentration by which the mind, the vitality and the senses are controlled - O Arjuna! They are the product of Purity." </br>
 
 ## Preferences
 <table>

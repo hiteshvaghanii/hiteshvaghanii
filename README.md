@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"न मे पार्थास्ति कर्तव्यं त्रिषु लोकेषु किञ्चन | नानवाप्तमवाप्तव्यं वर्त एव च कर्मणि ||३-२२||" </br>
-Translate: "3.22 There is nothing in this universe, O Arjuna, that I am compelled to do, nor anything for Me to attain; yet I am persistently active." </br>
+"अश्रद्दधानाः पुरुषा धर्मस्यास्य परन्तप | अप्राप्य मां निवर्तन्ते मृत्युसंसारवर्त्मनि ||९-३||" </br>
+Translate: "9.3 They who have no faith in this teaching cannot find Me, but remain lost in the purlieus of this perishable world." </br>
 
 ## Preferences
 <table>

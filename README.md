@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अपाने जुह्वति प्राणं प्राणेऽपानं तथापरे | प्राणापानगती रुद्ध्वा प्राणायामपरायणाः ||४-२९||" </br>
-Translate: "4.29 There are some who practise control of the Vital Energy and govern the subtle forces of Prana and Apana, thereby sacrificing their Prana unto Apana, or their Apana unto Prana." </br>
+"ये मे मतमिदं नित्यमनुतिष्ठन्ति मानवाः | श्रद्धावन्तोऽनसूयन्तो मुच्यन्ते तेऽपि कर्मभिः ||३-३१||" </br>
+Translate: "3.31 Those who always act in accordance with My precepts, firm in faith and without cavilling, they too are freed from the bondage of action." </br>
 
 ## Preferences
 <table>

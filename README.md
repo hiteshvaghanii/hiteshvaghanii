@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"यावदेतान्निरीक्षेऽहं योद्धुकामानवस्थितान् | कैर्मया सह योद्धव्यमस्मिन् रणसमुद्यमे ||१-२२||" </br>
-Translate: "1.22 So that I may observe those who must fight on my side, those who must fight against me;" </br>
+"मात्रास्पर्शास्तु कौन्तेय शीतोष्णसुखदुःखदाः | आगमापायिनोऽनित्यास्तांस्तितिक्षस्व भारत ||२-१४||" </br>
+Translate: "2.14 Those external relations which bring cold and heat, pain and happiness, they come and go; they are not permanent. Endure them bravely, O Prince!" </br>
 
 ## Preferences
 <table>

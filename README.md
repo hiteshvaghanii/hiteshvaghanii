@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"व्यामिश्रेणेव वाक्येन बुद्धिं मोहयसीव मे | तदेकं वद निश्चित्य येन श्रेयोऽहमाप्नुयाम् ||३-२||" </br>
-Translate: "3.2 Thy language perplexes me and confuses my reason. Therefore please tell me the only way by which I may, without doubt, secure my spiritual welfare." </br>
+"तपाम्यहमहं वर्षं निगृह्णाम्युत्सृजामि च | अमृतं चैव मृत्युश्च सदसच्चाहमर्जुन ||९-१९||" </br>
+Translate: "9.19 I am the Heat of the Sun, I release and hold back the Rains. I am Death and Immortality; I am Being and Not-Being." </br>
 
 ## Preferences
 <table>

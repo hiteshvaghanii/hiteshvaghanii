@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"सञ्जय उवाच | एवमुक्त्वार्जुनः सङ्ख्ये रथोपस्थ उपाविशत् | विसृज्य सशरं चापं शोकसंविग्नमानसः ||१-४७||" </br>
-Translate: "1.47 Sanjaya said: "Having spoken thus, in the midst of the armies, Arjuna sank on the seat of the chariot, casting away his bow and arrow; heartbroken with grief."" </br>
+"व्यामिश्रेणेव वाक्येन बुद्धिं मोहयसीव मे | तदेकं वद निश्चित्य येन श्रेयोऽहमाप्नुयाम् ||३-२||" </br>
+Translate: "3.2 Thy language perplexes me and confuses my reason. Therefore please tell me the only way by which I may, without doubt, secure my spiritual welfare." </br>
 
 ## Preferences
 <table>

@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अव्यक्ताद् व्यक्तयः सर्वाः प्रभवन्त्यहरागमे | रात्र्यागमे प्रलीयन्ते तत्रैवाव्यक्तसंज्ञके ||८-१८||" </br>
-Translate: "8.18 At the dawning of that day all objects in manifestation stream forth from the Unmanifest, and when evening falls they are dissolved into It again." </br>
+"य एवं वेत्ति पुरुषं प्रकृतिं च गुणैः सह | सर्वथा वर्तमानोऽपि न स भूयोऽभिजायते ||१३-२४||" </br>
+Translate: "13.24 He who understands God and Nature along with her qualities, whatever be his condition in life, he comes not again to earth." </br>
 
 ## Preferences
 <table>

@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"हतो वा प्राप्स्यसि स्वर्गं जित्वा वा भोक्ष्यसे महीम् | तस्मादुत्तिष्ठ कौन्तेय युद्धाय कृतनिश्चयः ||२-३७||" </br>
-Translate: "2.37 If killed, thou shalt attain Heaven; if victorious, enjoy the kingdom of earth. Therefore arise, O Son of Kunti, and fight!" </br>
+"अप्रकाशोऽप्रवृत्तिश्च प्रमादो मोह एव च | तमस्येतानि जायन्ते विवृद्धे कुरुनन्दन ||१४-१३||" </br>
+Translate: "14.13 Darkness, stagnation, folly and infatuation are the result of the dominance of Ignorance, O joy of the Kuru-clan!" </br>
 
 ## Preferences
 <table>

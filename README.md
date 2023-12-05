@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"ज्ञेयं यत्तत्प्रवक्ष्यामि यज्ज्ञात्वामृतमश्नुते | अनादिमत्परं ब्रह्म न सत्तन्नासदुच्यते ||१३-१३||" </br>
-Translate: "13.13 I will speak to thee now of that great Truth which man ought to know, since by its means he will win immortal bliss - that which is without beginning, the Eternal Spirit which dwells in Me, neither with form, nor yet without it." </br>
+"न च मां तानि कर्माणि निबध्नन्ति धनञ्जय | उदासीनवदासीनमसक्तं तेषु कर्मसु ||९-९||" </br>
+Translate: "9.9 But these acts of mine do not bind Me. I remain outside and unattached." </br>
 
 ## Preferences
 <table>

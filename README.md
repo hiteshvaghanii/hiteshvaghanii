@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"यदा ते मोहकलिलं बुद्धिर्व्यतितरिष्यति | तदा गन्तासि निर्वेदं श्रोतव्यस्य श्रुतस्य च ||२-५२||" </br>
-Translate: "2.52 When thy reason has crossed the entanglements of illusion, then shalt thou become indifferent both to the philosophies thou hast heard and to those thou mayest yet hear." </br>
+"न तु मां शक्यसे द्रष्टुमनेनैव स्वचक्षुषा | दिव्यं ददामि ते चक्षुः पश्य मे योगमैश्वरम् ||११-८||" </br>
+Translate: "11.8 Yet since with mortal eyes thou canst not see Me, lo! I give thee the Divine Sight. See now the glory of My Sovereignty."" </br>
 
 ## Preferences
 <table>

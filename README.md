@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"दिव्यमाल्याम्बरधरं दिव्यगन्धानुलेपनम् | सर्वाश्चर्यमयं देवमनन्तं विश्वतोमुखम् ||११-११||" </br>
-Translate: "11.11 Crowned with heavenly garlands, clothed in shining garments, anointed with divine unctions, He showed Himself as the Resplendent One, Marvellous, Boundless, Omnipresent." </br>
+"दैवी ह्येषा गुणमयी मम माया दुरत्यया | मामेव ये प्रपद्यन्ते मायामेतां तरन्ति ते ||७-१४||" </br>
+Translate: "7.14 Verily, this Divine Illusion of Phenomenon manifesting itself in the Qualities is difficult to surmount. Only they who devote themselves to Me and to Me alone can accomplish it." </br>
 
 ## Preferences
 <table>

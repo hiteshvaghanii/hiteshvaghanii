@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"सञ्जय उवाच | एतच्छ्रुत्वा वचनं केशवस्य कृताञ्जलिर्वेपमानः किरीटी | नमस्कृत्वा भूय एवाह कृष्णं सगद्गदं भीतभीतः प्रणम्य ||११-३५||" </br>
-Translate: "11.35 Sanjaya continued: "Having heard these words from the Lord Shri Krishna, the Prince Arjuna, with folded hands trembling, prostrated himself and with choking voice, bowing down again and again, and overwhelmed with awe, once more addressed the Lord." </br>
+"अव्यक्तोऽयमचिन्त्योऽयमविकार्योऽयमुच्यते | तस्मादेवं विदित्वैनं नानुशोचितुमर्हसि ||२-२५||" </br>
+Translate: "2.25 It is named the Unmanifest, the Unthinkable, the immutable. Wherefore, knowing the Spirit as such, thou hast no cause to grieve." </br>
 
 ## Preferences
 <table>

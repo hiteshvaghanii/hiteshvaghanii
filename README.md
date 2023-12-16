@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"तच्च संस्मृत्य संस्मृत्य रूपमत्यद्भुतं हरेः | विस्मयो मे महान् राजन्हृष्यामि च पुनः पुनः ||१८-७७||" </br>
-Translate: "18.77 As memory recalls again and again the exceeding beauty of the Lord, I am filled with amazement and happiness." </br>
+"ये यथा मां प्रपद्यन्ते तांस्तथैव भजाम्यहम् | मम वर्त्मानुवर्तन्ते मनुष्याः पार्थ सर्वशः ||४-११||" </br>
+Translate: "4.11 Howsoever men try to worship Me, so do I welcome them. By whatever path they travel, it leads to Me at last." </br>
 
 ## Preferences
 <table>

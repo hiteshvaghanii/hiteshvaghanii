@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"मुक्तसङ्गोऽनहंवादी धृत्युत्साहसमन्वितः | सिद्ध्यसिद्ध्योर्निर्विकारः कर्ता सात्त्विक उच्यते ||१८-२६||" </br>
-Translate: "18.26 But when a man has no sentiment and no personal vanity, when he possesses courage and confidence, cares not whether he succeeds or fails, then his action arises from Purity." </br>
+"तच्च संस्मृत्य संस्मृत्य रूपमत्यद्भुतं हरेः | विस्मयो मे महान् राजन्हृष्यामि च पुनः पुनः ||१८-७७||" </br>
+Translate: "18.77 As memory recalls again and again the exceeding beauty of the Lord, I am filled with amazement and happiness." </br>
 
 ## Preferences
 <table>

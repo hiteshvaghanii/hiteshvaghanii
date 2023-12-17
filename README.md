@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"न वेदयज्ञाध्ययनैर्न दानैर्- न च क्रियाभिर्न तपोभिरुग्रैः | एवंरूपः शक्य अहं नृलोके द्रष्टुं त्वदन्येन कुरुप्रवीर ||११-४८||" </br>
-Translate: "11.48 Not by study of the scriptures, not by sacrifice or gift, not by ritual or rigorous austerity, is it possible for man on earth to see what thou hast seen, O thou foremost hero of the Kuru-clan!" </br>
+"तमस्त्वज्ञानजं विद्धि मोहनं सर्वदेहिनाम् | प्रमादालस्यनिद्राभिस्तन्निबध्नाति भारत ||१४-८||" </br>
+Translate: "14.8 But Ignorance, the product of darkness, stupefies the senses in all embodied beings, binding them by chains of folly, indolence and lethargy." </br>
 
 ## Preferences
 <table>

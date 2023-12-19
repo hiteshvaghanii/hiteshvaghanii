@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"भक्त्या मामभिजानाति यावान्यश्चास्मि तत्त्वतः | ततो मां तत्त्वतो ज्ञात्वा विशते तदनन्तरम् ||१८-५५||" </br>
-Translate: "18.55 By such devotion, he sees Me, who I am and what I am; and thus realising the Truth, he enters My Kingdom." </br>
+"गतसङ्गस्य मुक्तस्य ज्ञानावस्थितचेतसः | यज्ञायाचरतः कर्म समग्रं प्रविलीयते ||४-२३||" </br>
+Translate: "4.23 He who is without attachment, free, his mind centered in wisdom, his actions, being done as a sacrifice, leave no trace behind." </br>
 
 ## Preferences
 <table>

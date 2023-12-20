@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"कामात्मानः स्वर्गपरा जन्मकर्मफलप्रदाम् | क्रियाविशेषबहुलां भोगैश्वर्यगतिं प्रति ||२-४३||" </br>
-Translate: "2.43 Consulting only their own desires, they construct their own heaven, devising arduous and complex rites to secure their own pleasure and their own power; and the only result is rebirth." </br>
+"श्रद्धया परया तप्तं तपस्तत्त्रिविधं नरैः | अफलाकाङ्क्षिभिर्युक्तैः सात्त्विकं परिचक्षते ||१७-१७||" </br>
+Translate: "17.17 These threefold austerities performed with faith, and without thought of reward, may truly be accounted Pure." </br>
 
 ## Preferences
 <table>

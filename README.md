@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"संन्यासस्तु महाबाहो दुःखमाप्तुमयोगतः | योगयुक्तो मुनिर्ब्रह्म नचिरेणाधिगच्छति ||५-६||" </br>
-Translate: "5.6 Without concentration, O Mighty Man, renunciation is difficult. But the sage who is always meditating on the Divine, before long shall attain the Absolute." </br>
+"कामात्मानः स्वर्गपरा जन्मकर्मफलप्रदाम् | क्रियाविशेषबहुलां भोगैश्वर्यगतिं प्रति ||२-४३||" </br>
+Translate: "2.43 Consulting only their own desires, they construct their own heaven, devising arduous and complex rites to secure their own pleasure and their own power; and the only result is rebirth." </br>
 
 ## Preferences
 <table>

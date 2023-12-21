@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अथवा बहुनैतेन किं ज्ञातेन तवार्जुन | विष्टभ्याहमिदं कृत्स्नमेकांशेन स्थितो जगत् ||१०-४२||" </br>
-Translate: "10.42 But what is the use of all these details to thee? O Arjuna! I sustain this universe with only small part of Myself."" </br>
+"युक्ताहारविहारस्य युक्तचेष्टस्य कर्मसु | युक्तस्वप्नावबोधस्य योगो भवति दुःखहा ||६-१७||" </br>
+Translate: "6.17 But for him who regulates his food and recreation, who is balanced in action, in sleep and in waking, it shall dispel all unhappiness." </br>
 
 ## Preferences
 <table>

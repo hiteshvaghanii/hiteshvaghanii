@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"न हि देहभृता शक्यं त्यक्तुं कर्माण्यशेषतः | यस्तु कर्मफलत्यागी स त्यागीत्यभिधीयते ||१८-११||" </br>
-Translate: "18.11 But since those still in the body cannot entirely avoid action, in their case abandonment of the fruit of action is considered as complete renunciation." </br>
+"ज्ञानेन तु तदज्ञानं येषां नाशितमात्मनः | तेषामादित्यवज्ज्ञानं प्रकाशयति तत्परम् ||५-१६||" </br>
+Translate: "5.16 Surely wisdom is like the sun, revealing the supreme truth to those whose ignorance is dispelled by the wisdom of the Self." </br>
 
 ## Preferences
 <table>

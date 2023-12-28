@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"ततः पदं तत्परिमार्गितव्यं यस्मिन्गता न निवर्तन्ति भूयः | तमेव चाद्यं पुरुषं प्रपद्ये | यतः प्रवृत्तिः प्रसृता पुराणी ||१५-४||" </br>
-Translate: "15.4 Beyond lies the Path, from which, when found, there is no return. This is the Primal God from whence this ancient creation has sprung." </br>
+"आत्मौपम्येन सर्वत्र समं पश्यति योऽर्जुन | सुखं वा यदि वा दुःखं स योगी परमो मतः ||६-३२||" </br>
+Translate: "6.32 O Arjuna! He is the perfect saint who, taught by the likeness within himself, sees the same Self everywhere, whether the outer form be pleasurable or painful." </br>
 
 ## Preferences
 <table>

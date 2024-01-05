@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"त्रिविधं नरकस्येदं द्वारं नाशनमात्मनः | कामः क्रोधस्तथा लोभस्तस्मादेतत्त्रयं त्यजेत् ||१६-२१||" </br>
-Translate: "16.21 The gates of hell are three: lust, wrath and avarice. They destroy the Self. Avoid them." </br>
+"भूमिरापोऽनलो वायुः खं मनो बुद्धिरेव च | अहंकार इतीयं मे भिन्ना प्रकृतिरष्टधा ||७-४||" </br>
+Translate: "7.4 Earth, water, fire, air, ether, mind, intellect and personality; this is the eightfold division of My Manifested Nature." </br>
 
 ## Preferences
 <table>

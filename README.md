@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"नमः पुरस्तादथ पृष्ठतस्ते नमोऽस्तु ते सर्वत एव सर्व | अनन्तवीर्यामितविक्रमस्त्वं सर्वं समाप्नोषि ततोऽसि सर्वः ||११-४०||" </br>
-Translate: "11.40 Salutations to Thee in front and on every side, Thou who encompasseth me round about. Thy power is infinite; Thy majesty immeasurable; thou upholdest all things; yea,Thou Thyself art All." </br>
+"युक्ताहारविहारस्य युक्तचेष्टस्य कर्मसु | युक्तस्वप्नावबोधस्य योगो भवति दुःखहा ||६-१७||" </br>
+Translate: "6.17 But for him who regulates his food and recreation, who is balanced in action, in sleep and in waking, it shall dispel all unhappiness." </br>
 
 ## Preferences
 <table>

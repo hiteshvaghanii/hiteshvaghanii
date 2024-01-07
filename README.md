@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अजोऽपि सन्नव्ययात्मा भूतानामीश्वरोऽपि सन् | प्रकृतिं स्वामधिष्ठाय सम्भवाम्यात्ममायया ||४-६||" </br>
-Translate: "4.6 have no beginning. Though I am imperishable, as well as Lord of all that exists, yet by My own will and power do I manifest Myself." </br>
+"वासांसि जीर्णानि यथा विहाय नवानि गृह्णाति नरोऽपराणि | तथा शरीराणि विहाय जीर्णा- न्यन्यानि संयाति नवानि देही ||२-२२||" </br>
+Translate: "2.22 As a man discards his threadbare robes and puts on new, so the Spirit throws off Its worn-out bodies and takes fresh ones." </br>
 
 ## Preferences
 <table>

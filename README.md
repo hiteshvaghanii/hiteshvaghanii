@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"यथा प्रकाशयत्येकः कृत्स्नं लोकमिमं रविः | क्षेत्रं क्षेत्री तथा कृत्स्नं प्रकाशयति भारत ||१३-३४||" </br>
-Translate: "13.34 As the one Sun illuminates the whole earth, so the Lord illumines the whole universe." </br>
+"एतैर्विमुक्तः कौन्तेय तमोद्वारैस्त्रिभिर्नरः | आचरत्यात्मनः श्रेयस्ततो याति परां गतिम् ||१६-२२||" </br>
+Translate: "16.22 These are the gates which lead to darkness; if a man avoid them he will ensure his own welfare, and in the end will attain his liberation." </br>
 
 ## Preferences
 <table>

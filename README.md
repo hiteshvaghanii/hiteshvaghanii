@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"महर्षयः सप्त पूर्वे चत्वारो मनवस्तथा | मद्भावा मानसा जाता येषां लोक इमाः प्रजाः ||१०-६||" </br>
-Translate: "10.6 The seven Great Seers,* the Progenitors of mankind, the Ancient Four,** and the Lawgivers were born of My Will and come forth direct from Me. The race of mankind has sprung from them. [* Mareechi, Atri, Angira, Pulah, Kratu, Pulastya, Vahishta. ** The Masters: Sanak, Sanandan, Sanatan, Sanatkumar.]" </br>
+"तेषां सततयुक्तानां भजतां प्रीतिपूर्वकम् | ददामि बुद्धियोगं तं येन मामुपयान्ति ते ||१०-१०||" </br>
+Translate: "10.10 To those who are always devout and who worship Me with love, I give the power of discrimination, which leads them to Me." </br>
 
 ## Preferences
 <table>

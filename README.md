@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"श्रुतिविप्रतिपन्ना ते यदा स्थास्यति निश्चला | समाधावचला बुद्धिस्तदा योगमवाप्स्यसि ||२-५३||" </br>
-Translate: "2.53 When the intellect, bewildered by the multiplicity of holy scripts, stands unperturbed in blissful contemplation of the Infinite, then hast thou attained Spirituality." </br>
+"श्रीभगवानुवाच | ऊर्ध्वमूलमधःशाखमश्वत्थं प्राहुरव्ययम् | छन्दांसि यस्य पर्णानि यस्तं वेद स वेदवित् ||१५-१||" </br>
+Translate: "15.1 "Lord Shri Krishna continued: This phenomenal creation, which is both ephemeral and eternal, is like a tree, but having its seed above in the Highest and its ramifications on this earth below. The scriptures are its leaves, and he who understands this, knows." </br>
 
 ## Preferences
 <table>

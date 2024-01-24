@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"ममैवांशो जीवलोके जीवभूतः सनातनः | मनःषष्ठानीन्द्रियाणि प्रकृतिस्थानि कर्षति ||१५-७||" </br>
-Translate: "15.7 It is only a very small part of My Eternal Self, which is the life of the universe, drawing round itself the six senses, the mind the last, which have their source in Nature." </br>
+"ब्रह्मार्पणं ब्रह्म हविर्ब्रह्माग्नौ ब्रह्मणा हुतम् | ब्रह्मैव तेन गन्तव्यं ब्रह्मकर्मसमाधिना ||४-२४||" </br>
+Translate: "4.24 For him, the sacrifice itself is the Spirit; the Spirit and the oblation are one; it is the Spirit Itself which is sacrificed in Its own fire, and the man even in action is united with God, since while performing his act, his mind never ceases to be fixed on Him." </br>
 
 ## Preferences
 <table>

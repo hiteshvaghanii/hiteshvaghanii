@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"श्रद्धावाननसूयश्च शृणुयादपि यो नरः | सोऽपि मुक्तः शुभाँल्लोकान्प्राप्नुयात्पुण्यकर्मणाम् ||१८-७१||" </br>
-Translate: "18.71 Yea, he who listens to it with faith and without doubt, even he, freed from evil, shalt rise to the worlds which the virtuous attain through righteous deeds." </br>
+"पञ्चैतानि महाबाहो कारणानि निबोध मे | साङ्ख्ये कृतान्ते प्रोक्तानि सिद्धये सर्वकर्मणाम् ||१८-१३||" </br>
+Translate: "18.13 I will tell thee now, O Mighty Man, the five causes which, according to the final decision of philosophy, must concur before an action can be accomplished." </br>
 
 ## Preferences
 <table>

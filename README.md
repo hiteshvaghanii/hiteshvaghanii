@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"पञ्चैतानि महाबाहो कारणानि निबोध मे | साङ्ख्ये कृतान्ते प्रोक्तानि सिद्धये सर्वकर्मणाम् ||१८-१३||" </br>
-Translate: "18.13 I will tell thee now, O Mighty Man, the five causes which, according to the final decision of philosophy, must concur before an action can be accomplished." </br>
+"श्रीभगवानुवाच | त्रिविधा भवति श्रद्धा देहिनां सा स्वभावजा | सात्त्विकी राजसी चैव तामसी चेति तां शृणु ||१७-२||" </br>
+Translate: "17.2 Lord Shri Krishna replied: Man has an inherent faith in one or another of the Qualities -Purity, Passion and Ignorance. Now listen." </br>
 
 ## Preferences
 <table>

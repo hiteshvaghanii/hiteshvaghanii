@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अर्जुन उवाच | दृष्ट्वेदं मानुषं रूपं तव सौम्यं जनार्दन | इदानीमस्मि संवृत्तः सचेताः प्रकृतिं गतः ||११-५१||" </br>
-Translate: "11.51 Arjuna said: Seeing Thee in Thy gentle human form, my Lord, I am myself again, calm once more." </br>
+"वेदानां सामवेदोऽस्मि देवानामस्मि वासवः | इन्द्रियाणां मनश्चास्मि भूतानामस्मि चेतना ||१०-२२||" </br>
+Translate: "10.22 Of the Vedas I am the Hymns, I am the Electric Force in the Powers of Nature; of the senses I am the Mind; and I am the Intelligence in all that lives." </br>
 
 ## Preferences
 <table>

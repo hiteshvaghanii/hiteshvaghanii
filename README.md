@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अनेकवक्त्रनयनमनेकाद्भुतदर्शनम् | अनेकदिव्याभरणं दिव्यानेकोद्यतायुधम् ||११-१०||" </br>
-Translate: "11.10 There were countless eyes and mouths, and mystic forms innumerable, with shining ornaments and flaming celestial weapons." </br>
+"यदृच्छालाभसन्तुष्टो द्वन्द्वातीतो विमत्सरः | समः सिद्धावसिद्धौ च कृत्वापि न निबध्यते ||४-२२||" </br>
+Translate: "4.22 Content with what comes to him without effort of his own, mounting above the pairs of opposites, free from envy, his mind balanced both in success and failure; though he acts, yet the consequences do not bind him." </br>
 
 ## Preferences
 <table>

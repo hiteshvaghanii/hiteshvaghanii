@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"यद्यदाचरति श्रेष्ठस्तत्तदेवेतरो जनः | स यत्प्रमाणं कुरुते लोकस्तदनुवर्तते ||३-२१||" </br>
-Translate: "3.21 For whatever a great man does, others imitate. People conform to the standard which he has set." </br>
+"द्रोणं च भीष्मं च जयद्रथं च कर्णं तथान्यानपि योधवीरान् | मया हतांस्त्वं जहि मा व्यथिष्ठा युध्यस्व जेतासि रणे सपत्नान् ||११-३४||" </br>
+Translate: "11.34 Drona and Bheeshma, Jayadratha and Karna, and other brave warriors - I have condemned them all. Destroy them; fight and fear not. Thy foes shall be crushed."" </br>
 
 ## Preferences
 <table>

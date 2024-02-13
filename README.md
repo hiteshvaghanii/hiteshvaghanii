@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अनन्तविजयं राजा कुन्तीपुत्रो युधिष्ठिरः | नकुलः सहदेवश्च सुघोषमणिपुष्पकौ ||१-१६||" </br>
-Translate: "1.16 The King Dharmaraja, the son of Kunti, blew the Anantavijaya, Nakalu and Sahadeo, the Sugosh and Manipushpaka, respectively." </br>
+"यथाकाशस्थितो नित्यं वायुः सर्वत्रगो महान् | तथा सर्वाणि भूतानि मत्स्थानीत्युपधारय ||९-६||" </br>
+Translate: "9.6 As the mighty wind, though moving everywhere, has no resting place but space, so have all these beings no home but Me." </br>
 
 ## Preferences
 <table>

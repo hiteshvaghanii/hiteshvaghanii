@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"पिताहमस्य जगतो माता धाता पितामहः | वेद्यं पवित्रमोंकार ऋक्साम यजुरेव च ||९-१७||" </br>
-Translate: "9.17 I am the Father of the universe and its Mother; I am its Nourisher and its Grandfather; I am the Knowable and the Pure; I am Om; and I am the Sacred Scriptures." </br>
+"अनन्तविजयं राजा कुन्तीपुत्रो युधिष्ठिरः | नकुलः सहदेवश्च सुघोषमणिपुष्पकौ ||१-१६||" </br>
+Translate: "1.16 The King Dharmaraja, the son of Kunti, blew the Anantavijaya, Nakalu and Sahadeo, the Sugosh and Manipushpaka, respectively." </br>
 
 ## Preferences
 <table>

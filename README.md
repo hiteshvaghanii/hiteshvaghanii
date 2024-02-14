@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अधियज्ञः कथं कोऽत्र देहेऽस्मिन्मधुसूदन | प्रयाणकाले च कथं ज्ञेयोऽसि नियतात्मभिः ||८-२||" </br>
-Translate: "8.2 Who is it who rules the spirit sacrifice in many; and at the time of death how may those who have learned self-control come to the knowledge of Thee?" </br>
+"समदुःखसुखः स्वस्थः समलोष्टाश्मकाञ्चनः | तुल्यप्रियाप्रियो धीरस्तुल्यनिन्दात्मसंस्तुतिः ||१४-२४||" </br>
+Translate: "14.24 Who accepts pain and pleasure as it comes, is centred in his Self, to whom a piece of clay or stone or gold are the same, who neither likes nor dislikes, who is steadfast, indifferent alike to praise or censure;" </br>
 
 ## Preferences
 <table>

@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"यो मामेवमसम्मूढो जानाति पुरुषोत्तमम् | स सर्वविद्भजति मां सर्वभावेन भारत ||१५-१९||" </br>
-Translate: "15.19 He who with unclouded vision sees Me as the Lord-God, knows all there is to be known, and always shall worship Me with his whole heart." </br>
+"सर्वभूतेषु येनैकं भावमव्ययमीक्षते | अविभक्तं विभक्तेषु तज्ज्ञानं विद्धि सात्त्विकम् ||१८-२०||" </br>
+Translate: "18.20 That knowledge which sees the One Indestructible in all beings, the One Indivisible in all separate lives, may be truly called Pure Knowledge." </br>
 
 ## Preferences
 <table>

@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"न तदस्ति पृथिव्यां वा दिवि देवेषु वा पुनः | सत्त्वं प्रकृतिजैर्मुक्तं यदेभिः स्यात्त्रिभिर्गुणैः ||१८-४०||" </br>
-Translate: "18.40 There is nothing anywhere on earth or in the higher worlds which is free from the three Qualities - for they are born of Nature." </br>
+"तेषामेवानुकम्पार्थमहमज्ञानजं तमः | नाशयाम्यात्मभावस्थो ज्ञानदीपेन भास्वता ||१०-११||" </br>
+Translate: "10.11 By My grace, I live in their hearts; and I dispel the darkness of ignorance by the shining light of wisdom." </br>
 
 ## Preferences
 <table>

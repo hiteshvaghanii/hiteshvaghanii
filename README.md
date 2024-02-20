@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"आत्मसम्भाविताः स्तब्धा धनमानमदान्विताः | यजन्ते नामयज्ञैस्ते दम्भेनाविधिपूर्वकम् ||१६-१७||" </br>
-Translate: "16.17 Self-conceited, stubborn, rich, proud and insolent, they make a display of their patronage, disregarding the rules of decency." </br>
+"अयनेषु च सर्वेषु यथाभागमवस्थिताः | भीष्ममेवाभिरक्षन्तु भवन्तः सर्व एव हि ||१-११||" </br>
+Translate: "1.11 Therefore in the rank and file, let stand firm in their posts, according to battalions; and all you generals about Bheeshma." </br>
 
 ## Preferences
 <table>

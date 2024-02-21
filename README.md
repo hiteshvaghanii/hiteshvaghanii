@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अर्जुन उवाच | कैर्लिङ्गैस्त्रीन्गुणानेतानतीतो भवति प्रभो | किमाचारः कथं चैतांस्त्रीन्गुणानतिवर्तते ||१४-२१||" </br>
-Translate: "14.21 Arjuna asked: My Lord! By what signs can he who has transcended the Qualities be recognized? How does he act? How does he live beyond them?" </br>
+"समं कायशिरोग्रीवं धारयन्नचलं स्थिरः | सम्प्रेक्ष्य नासिकाग्रं स्वं दिशश्चानवलोकयन् ||६-१३||" </br>
+Translate: "6.13 Let him hold body, head and neck erect, motionless and steady; let him look fixedly at the tip of his nose, turning neither to the right nor to the left." </br>
 
 ## Preferences
 <table>

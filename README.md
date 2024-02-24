@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"गतिर्भर्ता प्रभुः साक्षी निवासः शरणं सुहृत् | प्रभवः प्रलयः स्थानं निधानं बीजमव्ययम् ||९-१८||" </br>
-Translate: "9.18 I am the Goal, the Sustainer, the Lord, the Witness, the Home, the Shelter, the Lover and the Origin; I am Life and Death; I am the Fountain and the Seed Imperishable." </br>
+"कर्म ब्रह्मोद्भवं विद्धि ब्रह्माक्षरसमुद्भवम् | तस्मात्सर्वगतं ब्रह्म नित्यं यज्ञे प्रतिष्ठितम् ||३-१५||" </br>
+Translate: "3.15 All action originates in the Supreme Spirit, which is Imperishable, and in sacrificial action the all-pervading Spirit is consciously present." </br>
 
 ## Preferences
 <table>

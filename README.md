@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"तत्र सत्त्वं निर्मलत्वात्प्रकाशकमनामयम् | सुखसङ्गेन बध्नाति ज्ञानसङ्गेन चानघ ||१४-६||" </br>
-Translate: "14.6 O Sinless One! Of these, Purity, being luminous, strong and invulnerable, binds one by its yearning for happiness and illumination." </br>
+"कार्पण्यदोषोपहतस्वभावः पृच्छामि त्वां धर्मसम्मूढचेताः | यच्छ्रेयः स्यान्निश्चितं ब्रूहि तन्मे शिष्यस्तेऽहं शाधि मां त्वां प्रपन्नम् ||२-७||" </br>
+Translate: "2.7 My heart is oppressed with pity; and my mind confused as to what my duty is. Therefore, my Lord, tell me what is best for my spiritual welfare, for I am Thy disciple. Please direct me, I pray." </br>
 
 ## Preferences
 <table>

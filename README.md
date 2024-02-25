@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"सञ्जय उवाच | दृष्ट्वा तु पाण्डवानीकं व्यूढं दुर्योधनस्तदा | आचार्यमुपसंगम्य राजा वचनमब्रवीत् ||१-२||" </br>
-Translate: "1.2 Sanjaya replied: "The Prince Duryodhana, when he saw the army of the Pandavas paraded, approached his preceptor Guru Drona and spoke as follows:" </br>
+"यदादित्यगतं तेजो जगद्भासयतेऽखिलम् | यच्चन्द्रमसि यच्चाग्नौ तत्तेजो विद्धि मामकम् ||१५-१२||" </br>
+Translate: "15.12 Remember that the Light which, proceeding from the sun, illumines the whole world, and the Light which is in the moon, and That which is in the fire also, all are born of Me." </br>
 
 ## Preferences
 <table>

@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"अफलाङ्क्षिभिर्यज्ञो विधिदृष्टो य इज्यते | यष्टव्यमेवेति मनः समाधाय स सात्त्विकः ||१७-११||" </br>
-Translate: "17.11 Sacrifice is Pure when it is offered by one who does not covet the fruit thereof, when it is done according to the commands of scripture, and with implicit faith that the sacrifice is a duty." </br>
+"वेदेषु यज्ञेषु तपःसु चैव दानेषु यत्पुण्यफलं प्रदिष्टम् | अत्येति तत्सर्वमिदं विदित्वा योगी परं स्थानमुपैति चाद्यम् ||८-२८||" </br>
+Translate: "8.28 The sage who knows this passes beyond all merit that comes from the study of the scriptures, from sacrifice, from austerities and charity, and reaches the Supreme Primeval Abode."" </br>
 
 ## Preferences
 <table>

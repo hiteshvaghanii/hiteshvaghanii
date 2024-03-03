@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"तदित्यनभिसन्धाय फलं यज्ञतपःक्रियाः | दानक्रियाश्च विविधाः क्रियन्ते मोक्षकाङ्क्षिभिः ||१७-२५||" </br>
-Translate: "17.25 Those who desire deliverance begin their acts of sacrifice, austerity or gift with the word Tat' (meaning That'), without thought of reward." </br>
+"तत्रैकस्थं जगत्कृत्स्नं प्रविभक्तमनेकधा | अपश्यद्देवदेवस्य शरीरे पाण्डवस्तदा ||११-१३||" </br>
+Translate: "11.13 In that vision Arjuna saw the universe, with its manifold shapes, all embraced in One, its Supreme Lord." </br>
 
 ## Preferences
 <table>

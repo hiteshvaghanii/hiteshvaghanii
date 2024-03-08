@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | काम्यानां कर्मणां न्यासं संन्यासं कवयो विदुः | सर्वकर्मफलत्यागं प्राहुस्त्यागं विचक्षणाः ||१८-२||" </br>
-Translate: "18.2 Lord Shri Krishna replied: The sages say that renunciation means forgoing an action which springs from desire; and relinquishing means the surrender of its fruit." </br>
+"गुणानेतानतीत्य त्रीन्देही देहसमुद्भवान् | जन्ममृत्युजरादुःखैर्विमुक्तोऽमृतमश्नुते ||१४-२०||" </br>
+Translate: "14.20 When the soul transcends the Qualities, which are the real cause of physical existence, then, freed from birth and death, from old age and misery, he quaffs the nectar of immortality." </br>
 
 ## Preferences
 <table>

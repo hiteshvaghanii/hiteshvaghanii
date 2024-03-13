@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"यो मामजमनादिं च वेत्ति लोकमहेश्वरम् | असम्मूढः स मर्त्येषु सर्वपापैः प्रमुच्यते ||१०-३||" </br>
-Translate: "10.3 He who knows Me as the unborn, without beginning, the Lord of the universe, he, stripped of his delusion, becomes free from all conceivable sin." </br>
+"तेषामेवानुकम्पार्थमहमज्ञानजं तमः | नाशयाम्यात्मभावस्थो ज्ञानदीपेन भास्वता ||१०-११||" </br>
+Translate: "10.11 By My grace, I live in their hearts; and I dispel the darkness of ignorance by the shining light of wisdom." </br>
 
 ## Preferences
 <table>

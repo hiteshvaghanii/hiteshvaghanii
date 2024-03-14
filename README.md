@@ -60,8 +60,8 @@ Thanks & Regards !!! :)  ✨
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | काम एष क्रोध एष रजोगुणसमुद्भवः | महाशनो महापाप्मा विद्ध्येनमिह वैरिणम् ||३-३७||" </br>
-Translate: "3.37 Lord Shri Krishna: It is desire, it is aversion, born of passion. Desire consumes and corrupts everything. It is man's greatest enemy." </br>
+"अनेकचित्तविभ्रान्ता मोहजालसमावृताः | प्रसक्ताः कामभोगेषु पतन्ति नरकेऽशुचौ ||१६-१६||" </br>
+Translate: "16.16 Perplexed by discordant thoughts, entangled in the snares of desire, infatuated by passion, they sink into the horrors of hell." </br>
 
 ## Preferences
 <table>
